@@ -1,18 +1,38 @@
 name: Update README with Random Quote
-
 on:
   schedule:
-    - cron: '10 7 * * *'
+    - cron: '30 7 * * *'
 
 jobs:
   update-readme:
     runs-on: ubuntu-latest
-
     steps:
-      - name: Check out the code
+      - name: Checkout Repository
         uses: actions/checkout@v2
 
-      - name: Build and run Docker container
+      - name: Set up Python
+        uses: actions/setup-python@v2
+        with:
+          python-version: '3.x'  # Use the appropriate Python version
+
+      - name: Install Dependencies
+        run: pip install requests
+
+      - name: Fetch Random Quote
         run: |
-          docker build -t update-readme .
-          docker run update-readme
+          RANDOM_QUOTE=$(curl -s https://api.quotable.io/random | jq -r '.content')
+          echo "Updating README with random quote: $RANDOM_QUOTE"
+          echo "$RANDOM_QUOTE" > quote.txt
+
+      - name: Update README
+        run: |
+          QUOTE=$(cat quote.txt)
+          sed -i "s|<YOUR_QUOTE_HERE>|$QUOTE|" README.md
+
+      - name: Commit and Push Changes
+        run: |
+          git config --global user.email "github-actions@github.com"
+          git config --global user.name "GitHub Actions"
+          git add README.md
+          git commit -m "Update README with a random quote"
+          git push
