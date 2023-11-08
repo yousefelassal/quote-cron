@@ -19,5 +19,5 @@ jobs:
       - name: Run Python script
         run: |
           docker run \
-            -v $(pwd):/ \
+            -v $(pwd): \
             latest
