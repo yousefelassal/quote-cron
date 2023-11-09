@@ -17,7 +17,7 @@ jobs:
           docker build -t update-readme .
           docker run -v $(pwd):/app update-readme
         env:
-          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+          GITHUB_TOKEN: ${{ secrets.TOKEN }}
 
       - name: Commit and Push Changes
         run: |
@@ -27,4 +27,4 @@ jobs:
           git commit -m "Update README with a random quote"
           git push
         env:
-          GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+          GITHUB_TOKEN: ${{ secrets.TOKEN }}
