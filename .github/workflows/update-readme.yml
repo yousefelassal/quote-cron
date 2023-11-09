@@ -2,7 +2,7 @@ name: Update README with Random Quote
 
 on:
   schedule:
-    - cron: '32 7 * * *'  # Schedule the action to run daily
+    - cron: '35 8 * * *'  # Schedule the action to run daily
 
 jobs:
   update-readme:
