@@ -21,8 +21,8 @@ jobs:
 
       - name: Commit and Push Changes
         run: |
-          git config user.name "Your Name"
-          git config user.email "your.email@example.com"
+          git config user.name "Yousef Sameh"
+          git config user.email "yousefsameh24@gmail.com"
           git add README.md
           git commit -m "Update README with a random quote"
           git push
