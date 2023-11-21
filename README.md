@@ -8,3 +8,5 @@
 > Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.
 
 > To be great is to be misunderstood.
+
+> The cautious seldom err.
