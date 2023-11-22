@@ -10,3 +10,5 @@
 > To be great is to be misunderstood.
 
 > The cautious seldom err.
+
+> Successful people ask better questions, and as a result, they get better answers.
