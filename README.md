@@ -12,3 +12,5 @@
 > The cautious seldom err.
 
 > Successful people ask better questions, and as a result, they get better answers.
+
+> We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.
