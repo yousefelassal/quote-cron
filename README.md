@@ -14,3 +14,5 @@
 > Successful people ask better questions, and as a result, they get better answers.
 
 > We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.
+
+> We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.
