@@ -16,3 +16,5 @@
 > We must be as courteous to a man as we are to a picture, which we are willing to give the advantage of a good light.
 
 > We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.
+
+> Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.
