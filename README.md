@@ -20,3 +20,5 @@
 > Wise kings generally have wise counselors; and he must be a wise man himself who is capable of distinguishing one.
 
 > Cleverness is not wisdom.
+
+> No party has a monopoly on wisdom. No democracy works without compromise.
