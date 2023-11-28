@@ -22,3 +22,5 @@
 > Cleverness is not wisdom.
 
 > No party has a monopoly on wisdom. No democracy works without compromise.
+
+> The real problem is not whether machines think but whether men do.
