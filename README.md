@@ -24,3 +24,5 @@
 > No party has a monopoly on wisdom. No democracy works without compromise.
 
 > The real problem is not whether machines think but whether men do.
+
+> Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
