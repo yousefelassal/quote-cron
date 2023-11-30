@@ -26,3 +26,5 @@
 > The real problem is not whether machines think but whether men do.
 
 > Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
+
+> When in doubt, tell the truth.
