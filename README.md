@@ -28,3 +28,5 @@
 > Friendship with oneself is all important because without it one cannot be friends with anybody else in the world.
 
 > When in doubt, tell the truth.
+
+> Knowledge without justice ought to be called cunning rather than wisdom.
