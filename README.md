@@ -30,3 +30,5 @@
 > When in doubt, tell the truth.
 
 > Knowledge without justice ought to be called cunning rather than wisdom.
+
+> Adversity causes some men to break, others to break records.
