@@ -32,3 +32,5 @@
 > Knowledge without justice ought to be called cunning rather than wisdom.
 
 > Adversity causes some men to break, others to break records.
+
+> If you smile when no one else is around, you really mean it.
