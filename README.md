@@ -34,3 +34,5 @@
 > Adversity causes some men to break, others to break records.
 
 > If you smile when no one else is around, you really mean it.
+
+> Kindness is the language which the deaf can hear and the blind can see.
