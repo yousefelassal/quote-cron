@@ -36,3 +36,5 @@
 > If you smile when no one else is around, you really mean it.
 
 > Kindness is the language which the deaf can hear and the blind can see.
+
+> Time you enjoy wasting, was not wasted.
