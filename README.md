@@ -40,3 +40,5 @@
 > Time you enjoy wasting, was not wasted.
 
 > Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
+
+> Always be a first-rate version of yourself, instead of a second-rate version of somebody else.
