@@ -44,3 +44,5 @@
 > Always be a first-rate version of yourself, instead of a second-rate version of somebody else.
 
 > Patience is the companion of wisdom.
+
+> Ask yourself the secret of your success. Listen to your answer and practice it.
