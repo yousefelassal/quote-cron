@@ -46,3 +46,5 @@
 > Patience is the companion of wisdom.
 
 > Ask yourself the secret of your success. Listen to your answer and practice it.
+
+> The self is not something ready-made, but something in continuous formation through choice of action.
