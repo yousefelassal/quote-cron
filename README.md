@@ -48,3 +48,5 @@
 > Ask yourself the secret of your success. Listen to your answer and practice it.
 
 > The self is not something ready-made, but something in continuous formation through choice of action.
+
+> It is more shameful to distrust our friends than to be deceived by them.
