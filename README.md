@@ -50,3 +50,5 @@
 > The self is not something ready-made, but something in continuous formation through choice of action.
 
 > It is more shameful to distrust our friends than to be deceived by them.
+
+> It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
