@@ -52,3 +52,5 @@
 > It is more shameful to distrust our friends than to be deceived by them.
 
 > It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
+
+> We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.
