@@ -54,3 +54,5 @@
 > It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
 
 > We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.
+
+> Know how to listen, and you will profit even from those who talk badly.
