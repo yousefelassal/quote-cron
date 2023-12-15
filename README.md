@@ -56,3 +56,5 @@
 > We must reach out our hand in friendship and dignity both to those who would befriend us and those who would be our enemy.
 
 > Know how to listen, and you will profit even from those who talk badly.
+
+> Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past!
