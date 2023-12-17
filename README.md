@@ -60,3 +60,5 @@
 > Let us revere, let us worship, but erect and open-eyed, the highest, not the lowest; the future, not the past!
 
 > If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
+
+> We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.
