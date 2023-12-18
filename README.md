@@ -62,3 +62,5 @@
 > If we could learn to like ourselves, even a little, maybe our cruelties and angers might melt away.
 
 > We the people are the rightful masters of both Congress and the courts, not to overthrow the Constitution but to overthrow the men who pervert the Constitution.
+
+> But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
