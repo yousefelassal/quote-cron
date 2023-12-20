@@ -66,3 +66,5 @@
 > But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
 
 > Never put off till tomorrow what you can do today.
+
+> Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
