@@ -68,3 +68,5 @@
 > Never put off till tomorrow what you can do today.
 
 > Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
+
+> Write your plans in pencil and give God the eraser.
