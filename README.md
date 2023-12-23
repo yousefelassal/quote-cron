@@ -72,3 +72,5 @@
 > Write your plans in pencil and give God the eraser.
 
 > One should not hurt others if one loves oneself.
+
+> I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over.
