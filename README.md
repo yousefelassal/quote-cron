@@ -74,3 +74,5 @@
 > One should not hurt others if one loves oneself.
 
 > I don't look to jump over 7-foot bars; I look around for 1-foot bars that I can step over.
+
+> I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
