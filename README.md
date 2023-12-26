@@ -78,3 +78,5 @@
 > I have just three things to teach: simplicity, patience, compassion. These three are your greatest treasures.
 
 > Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
+
+> Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.
