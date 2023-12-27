@@ -80,3 +80,5 @@
 > Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
 
 > Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.
+
+> History will be kind to me for I intend to write it.
