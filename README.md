@@ -82,3 +82,5 @@
 > Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.
 
 > History will be kind to me for I intend to write it.
+
+> God always takes the simplest way.
