@@ -90,3 +90,5 @@
 > If you love life, don't waste time, for time is what life is made up of.
 
 > Take no thought of who is right or wrong or who is better than. Be not for or against.
+
+> When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
