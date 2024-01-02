@@ -92,3 +92,5 @@
 > Take no thought of who is right or wrong or who is better than. Be not for or against.
 
 > When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
+
+> Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
