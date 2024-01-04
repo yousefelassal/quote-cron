@@ -96,3 +96,5 @@
 > Life's challenges are not supposed to paralyze you, they're supposed to help you discover who you are.
 
 > A friendship founded on business is better than a business founded on friendship.
+
+> To climb steep hills requires a slow pace at first.
