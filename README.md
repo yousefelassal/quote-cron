@@ -98,3 +98,5 @@
 > A friendship founded on business is better than a business founded on friendship.
 
 > To climb steep hills requires a slow pace at first.
+
+> Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
