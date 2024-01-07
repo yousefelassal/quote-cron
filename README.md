@@ -102,3 +102,5 @@
 > Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
 
 > A passion for politics stems usually from an insatiable need, either for power, or for friendship and adulation, or a combination of both.
+
+> A rolling stone gathers no moss.
