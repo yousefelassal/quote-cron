@@ -106,3 +106,5 @@
 > A rolling stone gathers no moss.
 
 > Only do what your heart tells you.
+
+> Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations.
