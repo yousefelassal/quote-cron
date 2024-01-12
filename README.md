@@ -112,3 +112,5 @@
 > Do more than dream: work.
 
 > Problems are only opportunities with thorns on them.
+
+> Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.
