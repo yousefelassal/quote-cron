@@ -116,3 +116,5 @@
 > Were here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.
 
 > Start where you are. Use what you have. Do what you can.
+
+> It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.
