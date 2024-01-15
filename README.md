@@ -118,3 +118,5 @@
 > Start where you are. Use what you have. Do what you can.
 
 > It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.
+
+> All difficult things have their origin in that which is easy, and great things in that which is small.
