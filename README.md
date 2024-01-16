@@ -120,3 +120,5 @@
 > It requires wisdom to understand wisdom: the music is nothing if the audience is deaf.
 
 > All difficult things have their origin in that which is easy, and great things in that which is small.
+
+> And as we let our own light shine, we unconsciously give other people permission to do the same.
