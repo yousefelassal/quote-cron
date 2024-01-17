@@ -122,3 +122,5 @@
 > All difficult things have their origin in that which is easy, and great things in that which is small.
 
 > And as we let our own light shine, we unconsciously give other people permission to do the same.
+
+> Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
