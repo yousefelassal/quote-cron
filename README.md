@@ -124,3 +124,5 @@
 > And as we let our own light shine, we unconsciously give other people permission to do the same.
 
 > Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
+
+> We are stuck with technology when what we really want is just stuff that works.
