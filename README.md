@@ -126,3 +126,5 @@
 > Love is never lost. If not reciprocated, it will flow back and soften and purify the heart.
 
 > We are stuck with technology when what we really want is just stuff that works.
+
+> A friend is a gift you give yourself.
