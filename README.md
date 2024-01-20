@@ -128,3 +128,5 @@
 > We are stuck with technology when what we really want is just stuff that works.
 
 > A friend is a gift you give yourself.
+
+> Forgiveness is choosing to love. It is the first skill of self-giving love.
