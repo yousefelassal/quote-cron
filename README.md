@@ -132,3 +132,5 @@
 > Forgiveness is choosing to love. It is the first skill of self-giving love.
 
 > The supreme art of war is to subdue the enemy without fighting.
+
+> Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.
