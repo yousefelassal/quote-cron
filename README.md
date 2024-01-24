@@ -136,3 +136,5 @@
 > Reading, after a certain age, diverts the mind too much from its creative pursuits. Any man who reads too much and uses his own brain too little falls into lazy habits of thinking.
 
 > Knowing your own darkness is the best method for dealing with the darkness of other people.
+
+> In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas.
