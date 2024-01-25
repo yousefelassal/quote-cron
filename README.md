@@ -138,3 +138,5 @@
 > Knowing your own darkness is the best method for dealing with the darkness of other people.
 
 > In the sky there are no tracks. Outside there is no recluse. There are no conditioned things that are eternal. There is no instability in the Buddhas.
+
+> Friendship increases in visiting friends, but in visiting them seldom.
