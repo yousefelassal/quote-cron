@@ -142,3 +142,5 @@
 > Friendship increases in visiting friends, but in visiting them seldom.
 
 > The longer we dwell on our misfortunes, the greater is their power to harm us.
+
+> Peace is not something you wish for. It's something you make, something you do, something you are, and something you give away.
