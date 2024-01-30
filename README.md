@@ -148,3 +148,5 @@
 > False friendship, like the ivy, decays and ruins the walls it embraces; but true friendship gives new life and animation to the object it supports.
 
 > Knowing others is wisdom, knowing yourself is Enlightenment.
+
+> We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
