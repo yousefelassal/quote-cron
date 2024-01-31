@@ -150,3 +150,5 @@
 > Knowing others is wisdom, knowing yourself is Enlightenment.
 
 > We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
+
+> We are all inclined to judge ourselves by our ideals; others, by their acts.
