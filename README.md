@@ -152,3 +152,5 @@
 > We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
 
 > We are all inclined to judge ourselves by our ideals; others, by their acts.
+
+> Life's most persistent and urgent question is, 'What are you doing for others?'
