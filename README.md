@@ -154,3 +154,5 @@
 > We are all inclined to judge ourselves by our ideals; others, by their acts.
 
 > Life's most persistent and urgent question is, 'What are you doing for others?'
+
+> There are many ways of going forward, but only one way of standing still.
