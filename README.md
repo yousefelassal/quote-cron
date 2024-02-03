@@ -156,3 +156,5 @@
 > Life's most persistent and urgent question is, 'What are you doing for others?'
 
 > There are many ways of going forward, but only one way of standing still.
+
+> There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.
