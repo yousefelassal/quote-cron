@@ -158,3 +158,5 @@
 > There are many ways of going forward, but only one way of standing still.
 
 > There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.
+
+> Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
