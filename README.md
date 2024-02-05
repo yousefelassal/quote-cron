@@ -160,3 +160,5 @@
 > There are basically two types of people. People who accomplish things, and people who claim to have accomplished things. The first group is less crowded.
 
 > Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.
+
+> When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
