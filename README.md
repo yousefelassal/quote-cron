@@ -164,3 +164,5 @@
 > When one door of happiness closes, another opens; but often we look so long at the closed door that we do not see the one which has been opened for us.
 
 > Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.
+
+> Let there be no purpose in friendship save the deepening of the spirit.
