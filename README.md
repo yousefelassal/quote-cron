@@ -166,3 +166,5 @@
 > Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself believe.
 
 > Let there be no purpose in friendship save the deepening of the spirit.
+
+> The most formidable weapon against errors of every kind is reason.
