@@ -1,7 +1,7 @@
 import requests
 
 # Fetch a random quote from api.quotable.io
-response = requests.get("https://api.quotable.io/random")
+response = requests.get("http://api.quotable.io/random")
 quote_data = response.json()
 quote = quote_data["content"]
 
