@@ -170,3 +170,5 @@
 > The most formidable weapon against errors of every kind is reason.
 
 > Action is the foundational key to all success.
+
+> It is not so important to know everything as to appreciate what we learn.
