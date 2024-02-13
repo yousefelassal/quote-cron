@@ -172,3 +172,5 @@
 > Action is the foundational key to all success.
 
 > It is not so important to know everything as to appreciate what we learn.
+
+> In life, all good things come hard, but wisdom is the hardest to come by.
