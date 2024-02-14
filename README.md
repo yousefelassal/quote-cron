@@ -174,3 +174,5 @@
 > It is not so important to know everything as to appreciate what we learn.
 
 > In life, all good things come hard, but wisdom is the hardest to come by.
+
+> Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right.
