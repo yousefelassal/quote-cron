@@ -176,3 +176,5 @@
 > In life, all good things come hard, but wisdom is the hardest to come by.
 
 > Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right.
+
+> To keep your secret is wisdom; but to expect others to keep it is folly.
