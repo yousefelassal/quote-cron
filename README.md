@@ -178,3 +178,5 @@
 > Sir, my concern is not whether God is on our side; my greatest concern is to be on God's side, for God is always right.
 
 > To keep your secret is wisdom; but to expect others to keep it is folly.
+
+> All I required to be happy was friendship and people I could admire.
