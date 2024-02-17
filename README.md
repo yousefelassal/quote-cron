@@ -180,3 +180,5 @@
 > To keep your secret is wisdom; but to expect others to keep it is folly.
 
 > All I required to be happy was friendship and people I could admire.
+
+> He that is giddy thinks the world turns round.
