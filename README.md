@@ -182,3 +182,5 @@
 > All I required to be happy was friendship and people I could admire.
 
 > He that is giddy thinks the world turns round.
+
+> I'm not in this world to live up to your expectations and you're not in this world to live up to mine.
