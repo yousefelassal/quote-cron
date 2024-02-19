@@ -184,3 +184,5 @@
 > He that is giddy thinks the world turns round.
 
 > I'm not in this world to live up to your expectations and you're not in this world to live up to mine.
+
+> Experience keeps a dear school, but fools will learn in no other.
