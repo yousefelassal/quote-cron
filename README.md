@@ -186,3 +186,5 @@
 > I'm not in this world to live up to your expectations and you're not in this world to live up to mine.
 
 > Experience keeps a dear school, but fools will learn in no other.
+
+> Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
