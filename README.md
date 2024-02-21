@@ -188,3 +188,5 @@
 > Experience keeps a dear school, but fools will learn in no other.
 
 > Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
+
+> You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.
