@@ -190,3 +190,5 @@
 > Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
 
 > You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.
+
+> There is only one corner of the universe you can be certain of improving, and that's your own self.
