@@ -192,3 +192,5 @@
 > You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.
 
 > There is only one corner of the universe you can be certain of improving, and that's your own self.
+
+> I am always ready to learn although I do not always like being taught.
