@@ -194,3 +194,5 @@
 > There is only one corner of the universe you can be certain of improving, and that's your own self.
 
 > I am always ready to learn although I do not always like being taught.
+
+> A friend in power is a friend lost.
