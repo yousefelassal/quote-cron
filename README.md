@@ -196,3 +196,5 @@
 > I am always ready to learn although I do not always like being taught.
 
 > A friend in power is a friend lost.
+
+> He who conquers others is strong; He who conquers himself is mighty.
