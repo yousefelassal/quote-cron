@@ -198,3 +198,5 @@
 > A friend in power is a friend lost.
 
 > He who conquers others is strong; He who conquers himself is mighty.
+
+> Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
