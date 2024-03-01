@@ -206,3 +206,5 @@
 > Don't believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you'll see the way to fly.
 
 > People may doubt what you say, but they will believe what you do.
+
+> The foolish man seeks happiness in the distance, the wise grows it under his feet.
