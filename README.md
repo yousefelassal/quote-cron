@@ -208,3 +208,5 @@
 > People may doubt what you say, but they will believe what you do.
 
 > The foolish man seeks happiness in the distance, the wise grows it under his feet.
+
+> The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers.
