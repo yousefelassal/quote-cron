@@ -212,3 +212,5 @@
 > The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers.
 
 > As you think, so shall you become.
+
+> Nothing is softer or more flexible than water, yet nothing can resist it.
