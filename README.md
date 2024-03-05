@@ -214,3 +214,5 @@
 > As you think, so shall you become.
 
 > Nothing is softer or more flexible than water, yet nothing can resist it.
+
+> Ardently do today what must be done. Who knows? Tomorrow, death comes.
