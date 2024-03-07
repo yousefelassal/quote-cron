@@ -218,3 +218,5 @@
 > Ardently do today what must be done. Who knows? Tomorrow, death comes.
 
 > The one thing that you have that nobody else has is you. Your voice, your mind, your story, your vision. So write and draw and build and play and dance and live as only you can.
+
+> The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward.
