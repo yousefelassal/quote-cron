@@ -222,3 +222,5 @@
 > The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward.
 
 > 'As I am, so are these. As are these, so am I.' Drawing the parallel to yourself, neither kill nor get others to kill.
+
+> The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.
