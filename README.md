@@ -224,3 +224,5 @@
 > 'As I am, so are these. As are these, so am I.' Drawing the parallel to yourself, neither kill nor get others to kill.
 
 > The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.
+
+> Applause is a receipt, not a bill.
