@@ -226,3 +226,5 @@
 > The greatest pleasure I know is to do a good action by stealth, and to have it found out by accident.
 
 > Applause is a receipt, not a bill.
+
+> I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match.
