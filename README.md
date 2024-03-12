@@ -228,3 +228,5 @@
 > Applause is a receipt, not a bill.
 
 > I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match.
+
+> Friendship is certainly the finest balm for the pangs of disappointed love.
