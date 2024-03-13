@@ -230,3 +230,5 @@
 > I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match.
 
 > Friendship is certainly the finest balm for the pangs of disappointed love.
+
+> Love isn't something you find. Love is something that finds you.
