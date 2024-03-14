@@ -232,3 +232,5 @@
 > Friendship is certainly the finest balm for the pangs of disappointed love.
 
 > Love isn't something you find. Love is something that finds you.
+
+> In wisdom gathered over time I have found that every experience is a form of exploration.
