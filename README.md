@@ -236,3 +236,5 @@
 > In wisdom gathered over time I have found that every experience is a form of exploration.
 
 > All achievements, all earned riches, have their beginning in an idea.
+
+> Better than a thousand useless words is one useful word, upon hearing which one attains peace.
