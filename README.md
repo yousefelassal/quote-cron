@@ -238,3 +238,5 @@
 > All achievements, all earned riches, have their beginning in an idea.
 
 > Better than a thousand useless words is one useful word, upon hearing which one attains peace.
+
+> Anything you really want, you can attain, if you really go after it.
