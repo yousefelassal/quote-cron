@@ -240,3 +240,5 @@
 > Better than a thousand useless words is one useful word, upon hearing which one attains peace.
 
 > Anything you really want, you can attain, if you really go after it.
+
+> That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.
