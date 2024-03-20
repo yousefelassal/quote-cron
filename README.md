@@ -244,3 +244,5 @@
 > That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.
 
 > The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers.
+
+> If you cannot do great things, do small things in a great way.
