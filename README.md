@@ -246,3 +246,5 @@
 > The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers.
 
 > If you cannot do great things, do small things in a great way.
+
+> One's friends are that part of the human race with which one can be human.
