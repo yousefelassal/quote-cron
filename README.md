@@ -248,3 +248,5 @@
 > If you cannot do great things, do small things in a great way.
 
 > One's friends are that part of the human race with which one can be human.
+
+> Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway.
