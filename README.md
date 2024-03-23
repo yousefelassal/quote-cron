@@ -250,3 +250,5 @@
 > One's friends are that part of the human race with which one can be human.
 
 > Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway.
+
+> The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
