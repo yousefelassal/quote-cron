@@ -252,3 +252,5 @@
 > Aerodynamically the bumblebee shouldn't be able to fly, but the bumblebee doesn't know that, so it goes on flying anyway.
 
 > The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
+
+> In all chaos there is a cosmos, in all disorder a secret order.
