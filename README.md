@@ -254,3 +254,5 @@
 > The greatest discovery of our generation is that human beings can alter their lives by altering their attitudes of mind. As you think, so shall you be.
 
 > In all chaos there is a cosmos, in all disorder a secret order.
+
+> There is no great genius without some touch of madness.
