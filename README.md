@@ -256,3 +256,5 @@
 > In all chaos there is a cosmos, in all disorder a secret order.
 
 > There is no great genius without some touch of madness.
+
+> The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.
