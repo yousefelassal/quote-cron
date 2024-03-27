@@ -258,3 +258,5 @@
 > There is no great genius without some touch of madness.
 
 > The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.
+
+> Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.
