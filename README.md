@@ -262,3 +262,5 @@
 > Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.
 
 > A failure is a man who has blundered but is not capable of cashing in on the experience.
+
+> Important principles may, and must, be inflexible.
