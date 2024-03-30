@@ -264,3 +264,5 @@
 > A failure is a man who has blundered but is not capable of cashing in on the experience.
 
 > Important principles may, and must, be inflexible.
+
+> Speak when you are angry, and you will make the best speech you will ever regret.
