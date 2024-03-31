@@ -266,3 +266,5 @@
 > Important principles may, and must, be inflexible.
 
 > Speak when you are angry, and you will make the best speech you will ever regret.
+
+> Maxim for life: You get treated in life the way you teach people to treat you.
