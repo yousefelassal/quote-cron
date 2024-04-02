@@ -270,3 +270,5 @@
 > Maxim for life: You get treated in life the way you teach people to treat you.
 
 > Wisdom alone is the science of other sciences.
+
+> No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.
