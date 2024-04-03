@@ -272,3 +272,5 @@
 > Wisdom alone is the science of other sciences.
 
 > No enterprise is more likely to succeed than one concealed from the enemy until it is ripe for execution.
+
+> I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
