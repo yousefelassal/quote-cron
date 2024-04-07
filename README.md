@@ -280,3 +280,5 @@
 > Discipline is the bridge between goals and accomplishment.
 
 > Look up at the stars and not down at your feet. Try to make sense of what you see, and wonder about what makes the universe exist. Be curious.
+
+> Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
