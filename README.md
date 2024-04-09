@@ -284,3 +284,5 @@
 > Man is not sum of what he has already, but rather the sum of what he does not yet have, of what he could have.
 
 > No man is free who is not master of himself.
+
+> The superior man is modest in his speech but exceeds in his actions.
