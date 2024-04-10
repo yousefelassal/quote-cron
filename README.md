@@ -286,3 +286,5 @@
 > No man is free who is not master of himself.
 
 > The superior man is modest in his speech but exceeds in his actions.
+
+> Let the beauty of what you love be what you do.
