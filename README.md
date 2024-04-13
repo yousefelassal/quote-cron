@@ -292,3 +292,5 @@
 > I am of the opinion that my life belongs to the community, and as long as I live it is my privilege to do for it whatever I can.
 
 > Knowledge speaks, but wisdom listens.
+
+> It is far better to be alone, than to be in bad company.
