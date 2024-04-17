@@ -300,3 +300,5 @@
 > A brand for a company is like a reputation for a person. You earn reputation by trying to do hard things well.
 
 > While we stop to think, we often miss our opportunity.
+
+> A man cannot be said to succeed in this life who does not satisfy one friend.
