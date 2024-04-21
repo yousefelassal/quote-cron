@@ -308,3 +308,5 @@
 > The greatest achievement of humanity is not its works of art, science, or technology, but the recognition of its own dysfunction.
 
 > The greatest mistake you can make in life is to be continually fearing you will make one.
+
+> A business that makes nothing but money is a poor business.
