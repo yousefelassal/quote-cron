@@ -310,3 +310,5 @@
 > The greatest mistake you can make in life is to be continually fearing you will make one.
 
 > A business that makes nothing but money is a poor business.
+
+> Friendship without self-interest is one of the rare and beautiful things of life.
