@@ -316,3 +316,5 @@
 > When you are offended at any man's fault, turn to yourself and study your own failings. Then you will forget your anger.
 
 > Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
+
+> Wisdom often times consists of knowing what to do next.
