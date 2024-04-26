@@ -318,3 +318,5 @@
 > Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
 
 > Wisdom often times consists of knowing what to do next.
+
+> Coming together is a beginning; keeping together is progress; working together is success.
