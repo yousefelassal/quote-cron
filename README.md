@@ -320,3 +320,5 @@
 > Wisdom often times consists of knowing what to do next.
 
 > Coming together is a beginning; keeping together is progress; working together is success.
+
+> Inspiration exists, but it has to find us working.
