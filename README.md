@@ -328,3 +328,5 @@
 > Better it is to live one day seeing the rise and fall of things than to live a hundred years without ever seeing the rise and fall of things.
 
 > Think like a man of action; act like a man of thought.
+
+> To keep your secret is wisdom; but to expect others to keep it is folly.
