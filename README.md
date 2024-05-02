@@ -330,3 +330,5 @@
 > Think like a man of action; act like a man of thought.
 
 > To keep your secret is wisdom; but to expect others to keep it is folly.
+
+> I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
