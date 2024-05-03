@@ -332,3 +332,5 @@
 > To keep your secret is wisdom; but to expect others to keep it is folly.
 
 > I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
+
+> If you spend too much time thinking about a thing, you'll never get it done.
