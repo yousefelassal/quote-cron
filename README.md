@@ -340,3 +340,5 @@
 > Begin, be bold, and venture to be wise.
 
 > We can only learn to love by loving.
+
+> Fame usually comes to those who are thinking about something else.
