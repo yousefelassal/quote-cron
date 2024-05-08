@@ -342,3 +342,5 @@
 > We can only learn to love by loving.
 
 > Fame usually comes to those who are thinking about something else.
+
+> Wisdom is the power to put our time and our knowledge to the proper use.
