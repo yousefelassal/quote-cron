@@ -344,3 +344,5 @@
 > Fame usually comes to those who are thinking about something else.
 
 > Wisdom is the power to put our time and our knowledge to the proper use.
+
+> Do not follow where the path may lead. Go, instead, where there is no path and leave a trail.
