@@ -348,3 +348,5 @@
 > Do not follow where the path may lead. Go, instead, where there is no path and leave a trail.
 
 > What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
+
+> The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
