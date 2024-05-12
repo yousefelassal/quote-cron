@@ -350,3 +350,5 @@
 > What is new in the world? Nothing. What is old in the world? Nothing. Everything has always been and will always be.
 
 > The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
+
+> To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
