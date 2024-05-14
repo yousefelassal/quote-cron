@@ -354,3 +354,5 @@
 > To support mother and father, to cherish partner and children, and to be engaged in peaceful occupation — this is the greatest blessing.
 
 > All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill.
+
+> Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
