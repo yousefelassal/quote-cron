@@ -356,3 +356,5 @@
 > All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill.
 
 > Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
+
+> Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
