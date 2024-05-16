@@ -358,3 +358,5 @@
 > Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
 
 > Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
+
+> Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another?
