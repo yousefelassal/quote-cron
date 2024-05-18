@@ -362,3 +362,5 @@
 > Friendship is but another name for an alliance with the follies and the misfortunes of others. Our own share of miseries is sufficient: why enter then as volunteers into those of another?
 
 > He who wishes to secure the good of others, has already secured his own.
+
+> If you love life, don't waste time, for time is what life is made up of.
