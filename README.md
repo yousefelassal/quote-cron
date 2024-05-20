@@ -366,3 +366,5 @@
 > If you love life, don't waste time, for time is what life is made up of.
 
 > I have often regretted my speech, never my silence.
+
+> Don't be afraid to go out on a limb. That's where the fruit is.
