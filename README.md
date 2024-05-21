@@ -368,3 +368,5 @@
 > I have often regretted my speech, never my silence.
 
 > Don't be afraid to go out on a limb. That's where the fruit is.
+
+> Numberless are the worlds wonders, but none more wonderful than man.
