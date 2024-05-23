@@ -372,3 +372,5 @@
 > Numberless are the worlds wonders, but none more wonderful than man.
 
 > He who talks more is sooner exhausted.
+
+> Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.
