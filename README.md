@@ -374,3 +374,5 @@
 > He who talks more is sooner exhausted.
 
 > Forgiveness is that subtle thread that binds both love and friendship. Without forgiveness, you may not even have a child one day.
+
+> I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.
