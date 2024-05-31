@@ -388,3 +388,5 @@
 > Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
 
 > Our greatness lies not so much in being able to remake the world as being able to remake ourselves.
+
+> I have often regretted my speech, never my silence.
