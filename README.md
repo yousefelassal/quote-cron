@@ -392,3 +392,5 @@
 > I have often regretted my speech, never my silence.
 
 > No act of kindness, no matter how small, is ever wasted.
+
+> Unless one is able to live fully in the present, the future is a hoax.
