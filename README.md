@@ -394,3 +394,5 @@
 > No act of kindness, no matter how small, is ever wasted.
 
 > Unless one is able to live fully in the present, the future is a hoax.
+
+> Don't look back. Something might be gaining on you.
