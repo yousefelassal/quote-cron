@@ -396,3 +396,5 @@
 > Unless one is able to live fully in the present, the future is a hoax.
 
 > Don't look back. Something might be gaining on you.
+
+> The person who lives life fully, glowing with life's energy, is the person who lives a successful life.
