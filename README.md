@@ -398,3 +398,5 @@
 > Don't look back. Something might be gaining on you.
 
 > The person who lives life fully, glowing with life's energy, is the person who lives a successful life.
+
+> A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
