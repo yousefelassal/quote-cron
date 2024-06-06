@@ -400,3 +400,5 @@
 > The person who lives life fully, glowing with life's energy, is the person who lives a successful life.
 
 > A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
+
+> Kindness is the language which the deaf can hear and the blind can see.
