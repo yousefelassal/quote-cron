@@ -402,3 +402,5 @@
 > A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
 
 > Kindness is the language which the deaf can hear and the blind can see.
+
+> Fear grows in darkness; if you think there's a bogeyman around, turn on the light.
