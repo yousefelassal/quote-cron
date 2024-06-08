@@ -404,3 +404,5 @@
 > Kindness is the language which the deaf can hear and the blind can see.
 
 > Fear grows in darkness; if you think there's a bogeyman around, turn on the light.
+
+> You're not obligated to win. You're obligated to keep trying to do the best you can every day.
