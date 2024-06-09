@@ -406,3 +406,5 @@
 > Fear grows in darkness; if you think there's a bogeyman around, turn on the light.
 
 > You're not obligated to win. You're obligated to keep trying to do the best you can every day.
+
+> We don't know a millionth of one percent about anything.
