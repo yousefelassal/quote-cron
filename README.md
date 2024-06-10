@@ -408,3 +408,5 @@
 > You're not obligated to win. You're obligated to keep trying to do the best you can every day.
 
 > We don't know a millionth of one percent about anything.
+
+> Remember always that you not only have the right to be an individual, you have an obligation to be one.
