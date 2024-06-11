@@ -410,3 +410,5 @@
 > We don't know a millionth of one percent about anything.
 
 > Remember always that you not only have the right to be an individual, you have an obligation to be one.
+
+> Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship.
