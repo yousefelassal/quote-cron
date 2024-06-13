@@ -414,3 +414,5 @@
 > Experts on romance say for a happy marriage there has to be more than a passionate love. For a lasting union, they insist, there must be a genuine liking for each other. Which, in my book, is a good definition for friendship.
 
 > The more man meditates upon good thoughts, the better will be his world and the world at large.
+
+> An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
