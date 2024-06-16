@@ -420,3 +420,5 @@
 > Our lives are the only meaningful expression of what we believe and in Whom we believe. And the only real wealth, for any of us, lies in our faith.
 
 > Through perseverance many people win success out of what seemed destined to be certain failure.
+
+> If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.
