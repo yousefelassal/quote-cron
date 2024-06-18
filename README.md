@@ -424,3 +424,5 @@
 > If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher.
 
 > All I can say about life is, Oh God, enjoy it!
+
+> The most complicated achievements of thought are possible without the assistance of consciousness.
