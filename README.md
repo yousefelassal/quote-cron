@@ -426,3 +426,5 @@
 > All I can say about life is, Oh God, enjoy it!
 
 > The most complicated achievements of thought are possible without the assistance of consciousness.
+
+> Technology made large populations possible; large populations now make technology indispensable.
