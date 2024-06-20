@@ -428,3 +428,5 @@
 > The most complicated achievements of thought are possible without the assistance of consciousness.
 
 > Technology made large populations possible; large populations now make technology indispensable.
+
+> If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
