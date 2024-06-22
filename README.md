@@ -432,3 +432,5 @@
 > If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
 
 > Think big thoughts but relish small pleasures.
+
+> The most complicated achievements of thought are possible without the assistance of consciousness.
