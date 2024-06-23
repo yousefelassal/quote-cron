@@ -434,3 +434,5 @@
 > Think big thoughts but relish small pleasures.
 
 > The most complicated achievements of thought are possible without the assistance of consciousness.
+
+> All experiences are preceded by mind, having mind as their master, created by mind.
