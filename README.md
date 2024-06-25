@@ -438,3 +438,5 @@
 > All experiences are preceded by mind, having mind as their master, created by mind.
 
 > The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.
+
+> Life's most persistent and urgent question is, 'What are you doing for others?'
