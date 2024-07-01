@@ -450,3 +450,5 @@
 > Experience is not what happens to a man. It is what a man does with what happens to him.
 
 > I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
+
+> If you do not change direction, you may end up where you are heading.
