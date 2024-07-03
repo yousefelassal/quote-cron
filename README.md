@@ -454,3 +454,5 @@
 > If you do not change direction, you may end up where you are heading.
 
 > The exercise of an extraordinary gift is the supremist pleasure in life.
+
+> Thought is the blossom; language the bud; action the fruit behind it.
