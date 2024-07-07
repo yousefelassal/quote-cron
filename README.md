@@ -462,3 +462,5 @@
 > A garden is always a series of losses set against a few triumphs, like life itself.
 
 > The universe is transformation; our life is what our thoughts make it.
+
+> To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
