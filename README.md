@@ -466,3 +466,5 @@
 > To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
 
 > Do you know what my favorite part of the game is? The opportunity to play.
+
+> If a man watches three football games in a row, he should be declared legally dead.
