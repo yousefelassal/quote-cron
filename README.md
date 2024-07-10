@@ -468,3 +468,5 @@
 > Do you know what my favorite part of the game is? The opportunity to play.
 
 > If a man watches three football games in a row, he should be declared legally dead.
+
+> Radiate boundless love towards the entire world…
