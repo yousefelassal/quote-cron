@@ -470,3 +470,5 @@
 > If a man watches three football games in a row, he should be declared legally dead.
 
 > Radiate boundless love towards the entire world…
+
+> Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.
