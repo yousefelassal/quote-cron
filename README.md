@@ -474,3 +474,5 @@
 > Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.
 
 > Give whatever you are doing and whoever you are with the gift of your attention.
+
+> Listen to what you know instead of what you fear.
