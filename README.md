@@ -480,3 +480,5 @@
 > If it turns out that there is a God, I don't think that he's evil. But the worst that you can say about him is that basically he's an underachiever.
 
 > Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
+
+> Everything that happens as it should, and if you observe carefully, you will find this to be so.
