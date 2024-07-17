@@ -482,3 +482,5 @@
 > Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity.
 
 > Everything that happens as it should, and if you observe carefully, you will find this to be so.
+
+> If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
