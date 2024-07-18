@@ -484,3 +484,5 @@
 > Everything that happens as it should, and if you observe carefully, you will find this to be so.
 
 > If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
+
+> Nature and books belong to the eyes that see them.
