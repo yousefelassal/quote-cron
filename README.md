@@ -492,3 +492,5 @@
 > When we are no longer able to change a situation - we are challenged to change ourselves.
 
 > Short words are best and the old words when short are best of all.
+
+> Business, you know, may bring you money, but friendship hardly ever does.
