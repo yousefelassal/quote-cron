@@ -494,3 +494,5 @@
 > Short words are best and the old words when short are best of all.
 
 > Business, you know, may bring you money, but friendship hardly ever does.
+
+> To enjoy life, we must touch much of it lightly.
