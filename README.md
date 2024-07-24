@@ -496,3 +496,5 @@
 > Business, you know, may bring you money, but friendship hardly ever does.
 
 > To enjoy life, we must touch much of it lightly.
+
+> The future is completely open, and we are writing it moment to moment.
