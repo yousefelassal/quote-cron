@@ -498,3 +498,5 @@
 > To enjoy life, we must touch much of it lightly.
 
 > The future is completely open, and we are writing it moment to moment.
+
+> You cannot find yourself by going into the past. You can find yourself by coming into the present.
