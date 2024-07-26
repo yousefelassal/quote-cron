@@ -500,3 +500,5 @@
 > The future is completely open, and we are writing it moment to moment.
 
 > You cannot find yourself by going into the past. You can find yourself by coming into the present.
+
+> The mark of your ignorance is the depth of your belief in injustice and tragedy. What the caterpillar calls the end of the world, the Master calls the butterfly.
