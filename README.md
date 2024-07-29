@@ -506,3 +506,5 @@
 > It is one of the blessings of old friends that you can afford to be stupid with them.
 
 > There is no way to happiness, happiness is the way.
+
+> Share your smile with the world. It's a symbol of friendship and peace.
