@@ -508,3 +508,5 @@
 > There is no way to happiness, happiness is the way.
 
 > Share your smile with the world. It's a symbol of friendship and peace.
+
+> Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
