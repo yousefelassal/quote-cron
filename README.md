@@ -510,3 +510,5 @@
 > Share your smile with the world. It's a symbol of friendship and peace.
 
 > Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
+
+> Kind words can be short and easy to speak, but their echoes are truly endless.
