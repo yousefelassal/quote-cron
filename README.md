@@ -512,3 +512,5 @@
 > Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
 
 > Kind words can be short and easy to speak, but their echoes are truly endless.
+
+> Formula for success: under promise and over deliver.
