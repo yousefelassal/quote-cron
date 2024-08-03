@@ -516,3 +516,5 @@
 > Formula for success: under promise and over deliver.
 
 > Experience is not what happens to you; it's what you do with what happens to you.
+
+> When in doubt, don't.
