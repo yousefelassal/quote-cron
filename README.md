@@ -518,3 +518,5 @@
 > Experience is not what happens to you; it's what you do with what happens to you.
 
 > When in doubt, don't.
+
+> Every man takes the limits of his own field of vision for the limits of the world.
