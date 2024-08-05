@@ -520,3 +520,5 @@
 > When in doubt, don't.
 
 > Every man takes the limits of his own field of vision for the limits of the world.
+
+> Wisdom alone is the science of other sciences.
