@@ -524,3 +524,5 @@
 > Wisdom alone is the science of other sciences.
 
 > Subdue your appetites, my dears, and you've conquered human nature.
+
+> Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
