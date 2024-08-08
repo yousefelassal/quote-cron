@@ -526,3 +526,5 @@
 > Subdue your appetites, my dears, and you've conquered human nature.
 
 > Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
+
+> If we all did the things we are capable of doing, we would literally astound ourselves.
