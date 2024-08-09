@@ -528,3 +528,5 @@
 > Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
 
 > If we all did the things we are capable of doing, we would literally astound ourselves.
+
+> A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
