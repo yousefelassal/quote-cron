@@ -530,3 +530,5 @@
 > If we all did the things we are capable of doing, we would literally astound ourselves.
 
 > A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
+
+> Freedom is the right to live as we wish.
