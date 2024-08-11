@@ -532,3 +532,5 @@
 > A successful person is one who can lay a firm foundation with the bricks that others throw at him or her.
 
 > Freedom is the right to live as we wish.
+
+> Our work is the presentation of our capabilities.
