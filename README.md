@@ -534,3 +534,5 @@
 > Freedom is the right to live as we wish.
 
 > Our work is the presentation of our capabilities.
+
+> A man who doesn't trust himself can never really trust anyone else.
