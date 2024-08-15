@@ -540,3 +540,5 @@
 > A wise man can learn more from a foolish question than a fool can learn from a wise answer.
 
 > Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.
+
+> By living deeply in the present moment we can understand the past better and we can prepare for a better future.
