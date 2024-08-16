@@ -542,3 +542,5 @@
 > Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.
 
 > By living deeply in the present moment we can understand the past better and we can prepare for a better future.
+
+> Finding good players is easy. Getting them to play as a team is another story.
