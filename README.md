@@ -544,3 +544,5 @@
 > By living deeply in the present moment we can understand the past better and we can prepare for a better future.
 
 > Finding good players is easy. Getting them to play as a team is another story.
+
+> Action may not always bring happiness; but there is no happiness without action.
