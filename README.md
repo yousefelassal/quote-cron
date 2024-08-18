@@ -546,3 +546,5 @@
 > Finding good players is easy. Getting them to play as a team is another story.
 
 > Action may not always bring happiness; but there is no happiness without action.
+
+> The less effort, the faster and more powerful you will be.
