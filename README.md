@@ -548,3 +548,5 @@
 > Action may not always bring happiness; but there is no happiness without action.
 
 > The less effort, the faster and more powerful you will be.
+
+> I seek constantly to improve my manners and graces, for they are the sugar to which all are attracted.
