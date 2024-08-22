@@ -554,3 +554,5 @@
 > Strong beliefs win strong men, and then make them stronger.
 
 > I allow my intuition to lead my path.
+
+> Eighty percent of success is showing up.
