@@ -556,3 +556,5 @@
 > I allow my intuition to lead my path.
 
 > Eighty percent of success is showing up.
+
+> Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.
