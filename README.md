@@ -558,3 +558,5 @@
 > Eighty percent of success is showing up.
 
 > Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.
+
+> When you come to the end of your rope, tie a knot and hang on.
