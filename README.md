@@ -562,3 +562,5 @@
 > When you come to the end of your rope, tie a knot and hang on.
 
 > Yesterday I dared to struggle. Today I dare to win.
+
+> Reality leaves a lot to the imagination.
