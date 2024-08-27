@@ -564,3 +564,5 @@
 > Yesterday I dared to struggle. Today I dare to win.
 
 > Reality leaves a lot to the imagination.
+
+> Go put your creed into the deed. Nor speak with double tongue.
