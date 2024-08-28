@@ -566,3 +566,5 @@
 > Reality leaves a lot to the imagination.
 
 > Go put your creed into the deed. Nor speak with double tongue.
+
+> We cannot do everything at once, but we can do something at once.
