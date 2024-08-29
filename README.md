@@ -568,3 +568,5 @@
 > Go put your creed into the deed. Nor speak with double tongue.
 
 > We cannot do everything at once, but we can do something at once.
+
+> The biggest adventure you can ever take is to live the life of your dreams.
