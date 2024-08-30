@@ -570,3 +570,5 @@
 > We cannot do everything at once, but we can do something at once.
 
 > The biggest adventure you can ever take is to live the life of your dreams.
+
+> I can, therefore I am.
