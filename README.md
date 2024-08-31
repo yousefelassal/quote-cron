@@ -572,3 +572,5 @@
 > The biggest adventure you can ever take is to live the life of your dreams.
 
 > I can, therefore I am.
+
+> Think as a wise man but communicate in the language of the people.
