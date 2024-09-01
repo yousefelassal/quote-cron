@@ -574,3 +574,5 @@
 > I can, therefore I am.
 
 > Think as a wise man but communicate in the language of the people.
+
+> Today you are you! That is truer than true! There is no one alive who is you-er than you!
