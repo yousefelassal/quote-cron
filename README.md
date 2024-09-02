@@ -576,3 +576,5 @@
 > Think as a wise man but communicate in the language of the people.
 
 > Today you are you! That is truer than true! There is no one alive who is you-er than you!
+
+> Never reach out your hand unless you're willing to extend an arm.
