@@ -580,3 +580,5 @@
 > Never reach out your hand unless you're willing to extend an arm.
 
 > I allow my intuition to lead my path.
+
+> I allow my intuition to lead my path.
