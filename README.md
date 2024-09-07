@@ -586,3 +586,5 @@
 > Just as a flower, which seems beautiful has color but no perfume, so are the fruitless words of a man who speaks them but does them not.
 
 > Don't be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends.
+
+> I'm astounded by people who want to 'know' the universe when it's hard enough to find your way around Chinatown.
