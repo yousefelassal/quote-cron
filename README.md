@@ -596,3 +596,5 @@
 > A lot of people give up just before theyre about to make it. You know you never know when that next obstacle is going to be the last one.
 
 > Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
+
+> The smallest deed is better than the greatest intention.
