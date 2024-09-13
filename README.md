@@ -598,3 +598,5 @@
 > Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
 
 > The smallest deed is better than the greatest intention.
+
+> When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.
