@@ -600,3 +600,5 @@
 > The smallest deed is better than the greatest intention.
 
 > When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.
+
+> Smile, breathe and go slowly.
