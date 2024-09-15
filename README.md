@@ -602,3 +602,5 @@
 > When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.
 
 > Smile, breathe and go slowly.
+
+> Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.
