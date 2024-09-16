@@ -604,3 +604,5 @@
 > Smile, breathe and go slowly.
 
 > Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.
+
+> Let us always meet each other with smile, for the smile is the beginning of love.
