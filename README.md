@@ -608,3 +608,5 @@
 > Let us always meet each other with smile, for the smile is the beginning of love.
 
 > I am always doing that which I cannot do, in order that I may learn how to do it.
+
+> The man who makes everything that leads to happiness depends upon himself, and not upon other men, has adopted the very best plan for living happily. This is the man of moderation, the man of manly character and of wisdom.
