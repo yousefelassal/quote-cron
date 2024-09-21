@@ -614,3 +614,5 @@
 > We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.
 
 > Independence is happiness.
+
+> He who knows others is wise. He who knows himself is enlightened.
