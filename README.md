@@ -616,3 +616,5 @@
 > Independence is happiness.
 
 > He who knows others is wise. He who knows himself is enlightened.
+
+> Always do your best. What you plant now, you will harvest later.
