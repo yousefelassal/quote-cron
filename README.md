@@ -620,3 +620,5 @@
 > Always do your best. What you plant now, you will harvest later.
 
 > Only do what your heart tells you.
+
+> If a man does his best, what else is there?
