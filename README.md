@@ -622,3 +622,5 @@
 > Only do what your heart tells you.
 
 > If a man does his best, what else is there?
+
+> Some people are born on third base and go through life thinking they hit a triple.
