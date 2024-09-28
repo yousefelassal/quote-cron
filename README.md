@@ -628,3 +628,5 @@
 > Of all the things which wisdom provides to make us entirely happy, much the greatest is the possession of friendship.
 
 > The only limit to our realization of tomorrow will be our doubts of today.
+
+> Arriving at one point is the starting point to another.
