@@ -630,3 +630,5 @@
 > The only limit to our realization of tomorrow will be our doubts of today.
 
 > Arriving at one point is the starting point to another.
+
+> Your talent is God's gift to you. What you do with it is your gift back to God.
