@@ -632,3 +632,5 @@
 > Arriving at one point is the starting point to another.
 
 > Your talent is God's gift to you. What you do with it is your gift back to God.
+
+> Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.
