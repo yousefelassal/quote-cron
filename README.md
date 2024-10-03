@@ -638,3 +638,5 @@
 > I want you to be everything that's you, deep at the center of your being.
 
 > Excellence is to do a common thing in an uncommon way.
+
+> That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.
