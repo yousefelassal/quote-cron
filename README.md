@@ -640,3 +640,5 @@
 > Excellence is to do a common thing in an uncommon way.
 
 > That old law about 'an eye for an eye' leaves everybody blind. The time is always right to do the right thing.
+
+> All human wisdom is summed up in two words; wait and hope.
