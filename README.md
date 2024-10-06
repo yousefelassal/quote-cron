@@ -644,3 +644,5 @@
 > All human wisdom is summed up in two words; wait and hope.
 
 > Nature takes away any faculty that is not used.
+
+> A thing well said will be wit in all languages.
