@@ -646,3 +646,5 @@
 > Nature takes away any faculty that is not used.
 
 > A thing well said will be wit in all languages.
+
+> We do not quit playing because we grow old, we grow old because we quit playing.
