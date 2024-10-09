@@ -650,3 +650,5 @@
 > We do not quit playing because we grow old, we grow old because we quit playing.
 
 > Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
+
+> Wishing to be friends is quick work, but friendship is a slow ripening fruit.
