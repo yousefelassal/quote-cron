@@ -652,3 +652,5 @@
 > Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
 
 > Wishing to be friends is quick work, but friendship is a slow ripening fruit.
+
+> I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
