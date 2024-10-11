@@ -654,3 +654,5 @@
 > Wishing to be friends is quick work, but friendship is a slow ripening fruit.
 
 > I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
+
+> One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
