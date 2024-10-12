@@ -656,3 +656,5 @@
 > I would maintain that thanks are the highest form of thought, and that gratitude is happiness doubled by wonder.
 
 > One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
+
+> In action a great heart is the chief qualification. In work, a great head.
