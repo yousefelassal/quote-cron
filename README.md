@@ -658,3 +658,5 @@
 > One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
 
 > In action a great heart is the chief qualification. In work, a great head.
+
+> Think how hard physics would be if particles could think.
