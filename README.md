@@ -660,3 +660,5 @@
 > In action a great heart is the chief qualification. In work, a great head.
 
 > Think how hard physics would be if particles could think.
+
+> Learning never exhausts the mind.
