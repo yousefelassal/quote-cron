@@ -662,3 +662,5 @@
 > Think how hard physics would be if particles could think.
 
 > Learning never exhausts the mind.
+
+> Friendship, like credit, is highest when it is not used.
