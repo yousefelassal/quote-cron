@@ -664,3 +664,5 @@
 > Learning never exhausts the mind.
 
 > Friendship, like credit, is highest when it is not used.
+
+> Don't cry because it's over. Smile because it happened.
