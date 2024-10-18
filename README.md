@@ -668,3 +668,5 @@
 > Don't cry because it's over. Smile because it happened.
 
 > I am building a fire, and everyday I train, I add more fuel. At just the right moment, I light the match.
+
+> Most people never run far enough on their first wind to find out they've got a second.
