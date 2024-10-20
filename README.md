@@ -672,3 +672,5 @@
 > Most people never run far enough on their first wind to find out they've got a second.
 
 > The lure of the distant and the difficult is deceptive. The great opportunity is where you are.
+
+> Autumn is a second spring when every leaf is a flower.
