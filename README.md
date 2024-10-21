@@ -674,3 +674,5 @@
 > The lure of the distant and the difficult is deceptive. The great opportunity is where you are.
 
 > Autumn is a second spring when every leaf is a flower.
+
+> I never think of the future - it comes soon enough.
