@@ -678,3 +678,5 @@
 > I never think of the future - it comes soon enough.
 
 > All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill.
+
+> No one has a finer command of language than the person who keeps his mouth shut.
