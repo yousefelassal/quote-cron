@@ -680,3 +680,5 @@
 > All tremble at violence; all fear death. Putting oneself in the place of another, one should not kill nor cause another to kill.
 
 > No one has a finer command of language than the person who keeps his mouth shut.
+
+> Step with care and great tact and remember that Life's a Great Balancing Act.
