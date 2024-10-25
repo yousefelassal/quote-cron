@@ -682,3 +682,5 @@
 > No one has a finer command of language than the person who keeps his mouth shut.
 
 > Step with care and great tact and remember that Life's a Great Balancing Act.
+
+> Never find fault with the absent.
