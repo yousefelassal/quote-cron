@@ -688,3 +688,5 @@
 > Every day is a new opportunity. You can build on yesterday's success or put its failures behind and start over again. That's the way life is, with a new game every day, and that's the way baseball is.
 
 > Don't talk about what you have done or what you are going to do.
+
+> No one is useless in this world who lightens the burdens of another.
