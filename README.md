@@ -690,3 +690,5 @@
 > Don't talk about what you have done or what you are going to do.
 
 > No one is useless in this world who lightens the burdens of another.
+
+> Let the beauty of what you love be what you do.
