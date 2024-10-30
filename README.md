@@ -692,3 +692,5 @@
 > No one is useless in this world who lightens the burdens of another.
 
 > Let the beauty of what you love be what you do.
+
+> I have no special talent. I am only passionately curious.
