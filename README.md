@@ -694,3 +694,5 @@
 > Let the beauty of what you love be what you do.
 
 > I have no special talent. I am only passionately curious.
+
+> How many legs does a dog have if you call his tail a leg? Four. Saying that a tail is a leg doesn't make it a leg.
