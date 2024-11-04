@@ -702,3 +702,5 @@
 > A single rose can be my garden... a single friend, my world.
 
 > If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
+
+> Silence is the sleep that nourishes wisdom.
