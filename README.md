@@ -706,3 +706,5 @@
 > Silence is the sleep that nourishes wisdom.
 
 > If I know what love is, it is because of you.
+
+> This is why I loved technology: if you used it right, it could give you power and privacy.
