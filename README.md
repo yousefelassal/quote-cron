@@ -710,3 +710,5 @@
 > This is why I loved technology: if you used it right, it could give you power and privacy.
 
 > One today is worth two tomorrows.
+
+> My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.
