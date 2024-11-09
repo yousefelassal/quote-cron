@@ -712,3 +712,5 @@
 > One today is worth two tomorrows.
 
 > My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.
+
+> I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want.
