@@ -716,3 +716,5 @@
 > I know where I'm going and I know the truth, and I don't have to be what you want me to be. I'm free to be what I want.
 
 > What happens is not as important as how you react to what happens.
+
+> Your big opportunity may be right where you are now.
