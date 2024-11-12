@@ -718,3 +718,5 @@
 > What happens is not as important as how you react to what happens.
 
 > Your big opportunity may be right where you are now.
+
+> The world makes way for the man who knows where he is going.
