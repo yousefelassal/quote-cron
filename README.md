@@ -720,3 +720,5 @@
 > Your big opportunity may be right where you are now.
 
 > The world makes way for the man who knows where he is going.
+
+> The superior man is modest in his speech but exceeds in his actions.
