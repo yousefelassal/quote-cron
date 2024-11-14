@@ -722,3 +722,5 @@
 > The world makes way for the man who knows where he is going.
 
 > The superior man is modest in his speech but exceeds in his actions.
+
+> Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.
