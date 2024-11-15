@@ -724,3 +724,5 @@
 > The superior man is modest in his speech but exceeds in his actions.
 
 > Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.
+
+> So is cheerfulness, or a good temper, the more it is spent, the more remains.
