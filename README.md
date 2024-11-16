@@ -726,3 +726,5 @@
 > Technology… is a queer thing. It brings you great gifts with one hand, and it stabs you in the back with the other.
 
 > So is cheerfulness, or a good temper, the more it is spent, the more remains.
+
+> Stay away from what might have been and look at what will be.
