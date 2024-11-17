@@ -728,3 +728,5 @@
 > So is cheerfulness, or a good temper, the more it is spent, the more remains.
 
 > Stay away from what might have been and look at what will be.
+
+> Reality leaves a lot to the imagination.
