@@ -730,3 +730,5 @@
 > Stay away from what might have been and look at what will be.
 
 > Reality leaves a lot to the imagination.
+
+> We can only learn to love by loving.
