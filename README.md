@@ -734,3 +734,5 @@
 > We can only learn to love by loving.
 
 > To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
+
+> If you change the way you look at things, the things you look at change.
