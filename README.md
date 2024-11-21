@@ -736,3 +736,5 @@
 > To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
 
 > If you change the way you look at things, the things you look at change.
+
+> Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
