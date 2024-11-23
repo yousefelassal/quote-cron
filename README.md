@@ -740,3 +740,5 @@
 > Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
 
 > Never find fault with the absent.
+
+> Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.
