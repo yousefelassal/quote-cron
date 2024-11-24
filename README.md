@@ -742,3 +742,5 @@
 > Never find fault with the absent.
 
 > Do not scorn what you have received, nor envy the gains of others. He who envies others does not obtain peace of mind.
+
+> If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
