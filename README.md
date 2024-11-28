@@ -750,3 +750,5 @@
 > Keep yourself to the sunshine and you cannot see the shadow.
 
 > You should ignore that person’s impure behavior by way of speech and body, and focus on the fact that they get an openness and clarity of heart from time to time. That’s how to get rid of resentment for that person.
+
+> We've got to have a dream if we are going to make a dream come true.
