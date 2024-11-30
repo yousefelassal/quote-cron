@@ -754,3 +754,5 @@
 > We've got to have a dream if we are going to make a dream come true.
 
 > In wisdom gathered over time I have found that every experience is a form of exploration.
+
+> Maxim for life: You get treated in life the way you teach people to treat you.
