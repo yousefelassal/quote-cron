@@ -762,3 +762,5 @@
 > No one is useless in this world who lightens the burdens of another.
 
 > Unless one is able to live fully in the present, the future is a hoax.
+
+> Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
