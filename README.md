@@ -764,3 +764,5 @@
 > Unless one is able to live fully in the present, the future is a hoax.
 
 > Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
+
+> We cannot solve our problems with the same thinking we used when we created them.
