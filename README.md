@@ -766,3 +766,5 @@
 > Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
 
 > We cannot solve our problems with the same thinking we used when we created them.
+
+> Nobody made a greater mistake than he who did nothing because he could do only a little.
