@@ -770,3 +770,5 @@
 > Nobody made a greater mistake than he who did nothing because he could do only a little.
 
 > Never interrupt someone doing what you said couldn't be done.
+
+> The awareness of our own strength makes us modest.
