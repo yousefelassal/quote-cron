@@ -780,3 +780,5 @@
 > Eighty percent of success is showing up.
 
 > It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.
+
+> To be great is to be misunderstood.
