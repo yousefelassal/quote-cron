@@ -782,3 +782,5 @@
 > It is better to have enough ideas for some of them to be wrong, than to be always right by having no ideas at all.
 
 > To be great is to be misunderstood.
+
+> A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.
