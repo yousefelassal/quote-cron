@@ -784,3 +784,5 @@
 > To be great is to be misunderstood.
 
 > A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.
+
+> People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
