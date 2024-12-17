@@ -788,3 +788,5 @@
 > People take different roads seeking fulfilment and happiness. Just because they're not on your road doesn't mean they've gotten lost.
 
 > How many cares one loses when one decides not to be something but to be someone.
+
+> One who is too insistent on his own views, finds few to agree with him.
