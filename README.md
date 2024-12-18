@@ -790,3 +790,5 @@
 > How many cares one loses when one decides not to be something but to be someone.
 
 > One who is too insistent on his own views, finds few to agree with him.
+
+> In seed time learn, in harvest teach, in winter enjoy.
