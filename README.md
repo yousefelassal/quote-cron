@@ -792,3 +792,5 @@
 > One who is too insistent on his own views, finds few to agree with him.
 
 > In seed time learn, in harvest teach, in winter enjoy.
+
+> All of our technology is completely unnecessary to a happy life.
