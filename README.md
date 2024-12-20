@@ -794,3 +794,5 @@
 > In seed time learn, in harvest teach, in winter enjoy.
 
 > All of our technology is completely unnecessary to a happy life.
+
+> Self-trust is the first secret of success.
