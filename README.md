@@ -796,3 +796,5 @@
 > All of our technology is completely unnecessary to a happy life.
 
 > Self-trust is the first secret of success.
+
+> It does not matter how slowly you go as long as you do not stop.
