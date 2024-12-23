@@ -800,3 +800,5 @@
 > It does not matter how slowly you go as long as you do not stop.
 
 > It is very easy to forgive others their mistakes; it takes more grit to forgive them for having witnessed your own.
+
+> Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
