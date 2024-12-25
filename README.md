@@ -804,3 +804,5 @@
 > Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
 
 > The free man is he who does not fear to go to the end of his thought.
+
+> Ability will never catch up with the demand for it.
