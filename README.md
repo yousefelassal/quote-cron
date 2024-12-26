@@ -806,3 +806,5 @@
 > The free man is he who does not fear to go to the end of his thought.
 
 > Ability will never catch up with the demand for it.
+
+> Problems are not stop signs, they are guidelines.
