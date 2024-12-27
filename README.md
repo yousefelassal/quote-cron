@@ -808,3 +808,5 @@
 > Ability will never catch up with the demand for it.
 
 > Problems are not stop signs, they are guidelines.
+
+> Allow the world to live as it chooses, and allow yourself to live as you choose.
