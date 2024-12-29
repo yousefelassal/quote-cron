@@ -812,3 +812,5 @@
 > Allow the world to live as it chooses, and allow yourself to live as you choose.
 
 > Don't be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends.
+
+> Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
