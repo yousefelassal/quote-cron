@@ -814,3 +814,5 @@
 > Don't be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends.
 
 > Nothing could be worse than the fear that one had given up too soon and left one unexpended effort that might have saved the world.
+
+> To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.
