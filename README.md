@@ -818,3 +818,5 @@
 > To wear your heart on your sleeve isn't a very good plan; you should wear it inside, where it functions best.
 
 > If we are not given the chance to forget, we are also not given the chance to recover our memories, to alter them with time, perspective, and wisdom. Forgetting, we can be ourselves beyond what the past has told us we are; we can evolve. That is the possibility we want from the future.
+
+> Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.
