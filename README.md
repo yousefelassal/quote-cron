@@ -822,3 +822,5 @@
 > Mediocrity knows nothing higher than itself, but talent instantly recognizes genius.
 
 > The greatest obstacle to connecting with our joy is resentment.
+
+> And when the world is created, it is created in such a way that those eternal objects of God's loving wisdom become actualities - interacting with one another, relating to God in the finite realm.
