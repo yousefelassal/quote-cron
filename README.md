@@ -828,3 +828,5 @@
 > Kind words can be short and easy to speak, but their echoes are truly endless.
 
 > Love is the master key that opens the gates of happiness.
+
+> The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world.
