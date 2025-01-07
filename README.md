@@ -830,3 +830,5 @@
 > Love is the master key that opens the gates of happiness.
 
 > The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world.
+
+> You have to do your own growing no matter how tall your grandfather was.
