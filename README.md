@@ -832,3 +832,5 @@
 > The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world.
 
 > You have to do your own growing no matter how tall your grandfather was.
+
+> Stay away from what might have been and look at what will be.
