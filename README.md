@@ -834,3 +834,5 @@
 > You have to do your own growing no matter how tall your grandfather was.
 
 > Stay away from what might have been and look at what will be.
+
+> In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
