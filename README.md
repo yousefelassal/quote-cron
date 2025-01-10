@@ -836,3 +836,5 @@
 > Stay away from what might have been and look at what will be.
 
 > In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
+
+> Computers are like bikinis. They save people a lot of guesswork.
