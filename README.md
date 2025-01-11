@@ -838,3 +838,5 @@
 > In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
 
 > Computers are like bikinis. They save people a lot of guesswork.
+
+> Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again.
