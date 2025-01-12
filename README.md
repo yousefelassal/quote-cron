@@ -840,3 +840,5 @@
 > Computers are like bikinis. They save people a lot of guesswork.
 
 > Our shared values define us more than our differences. And acknowledging those shared values can see us through our challenges today if we have the wisdom to trust in them again.
+
+> But at any rate, the point is that God is what nobody admits to being, and everybody really is.
