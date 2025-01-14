@@ -844,3 +844,5 @@
 > But at any rate, the point is that God is what nobody admits to being, and everybody really is.
 
 > There is only one success: to be able to spend your life in your own way.
+
+> The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease.
