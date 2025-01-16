@@ -848,3 +848,5 @@
 > The doctor of the future will give no medicine, but will interest her or his patients in the care of the human frame, in a proper diet, and in the cause and prevention of disease.
 
 > Real magic in relationships means an absence of judgement of others.
+
+> Silence is a source of great strength.
