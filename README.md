@@ -850,3 +850,5 @@
 > Real magic in relationships means an absence of judgement of others.
 
 > Silence is a source of great strength.
+
+> Divide each difficulty into as many parts as is feasible and necessary to resolve it.
