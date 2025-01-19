@@ -854,3 +854,5 @@
 > Divide each difficulty into as many parts as is feasible and necessary to resolve it.
 
 > Just as much as we see in others, we have in ourselves.
+
+> Ignorance never settles a question.
