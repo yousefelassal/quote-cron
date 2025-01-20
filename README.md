@@ -856,3 +856,5 @@
 > Just as much as we see in others, we have in ourselves.
 
 > Ignorance never settles a question.
+
+> From wonder into wonder existence opens.
