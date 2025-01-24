@@ -864,3 +864,5 @@
 > Wisdom consists of the anticipation of consequences.
 
 > I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair.
+
+> Fans don't boo nobodies.
