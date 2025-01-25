@@ -866,3 +866,5 @@
 > I, too, do not envision a doctrine of self the clinging to which there would not arise sorrow, lamentation, pain, grief, and despair.
 
 > Fans don't boo nobodies.
+
+> Life is a travelling to the edge of knowledge, then a leap taken.
