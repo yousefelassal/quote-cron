@@ -868,3 +868,5 @@
 > Fans don't boo nobodies.
 
 > Life is a travelling to the edge of knowledge, then a leap taken.
+
+> Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.
