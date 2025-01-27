@@ -870,3 +870,5 @@
 > Life is a travelling to the edge of knowledge, then a leap taken.
 
 > Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.
+
+> Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work.
