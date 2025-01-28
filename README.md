@@ -872,3 +872,5 @@
 > Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.
 
 > Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work.
+
+> The real problem is not whether machines think but whether men do.
