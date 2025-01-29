@@ -874,3 +874,5 @@
 > Results! Why, man, I have gotten a lot of results. I know several thousand things that won't work.
 
 > The real problem is not whether machines think but whether men do.
+
+> A friend is someone who gives you total freedom to be yourself.
