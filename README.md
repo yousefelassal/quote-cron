@@ -876,3 +876,5 @@
 > The real problem is not whether machines think but whether men do.
 
 > A friend is someone who gives you total freedom to be yourself.
+
+> I can't listen to that much Wagner. I start getting the urge to conquer Poland.
