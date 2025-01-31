@@ -878,3 +878,5 @@
 > A friend is someone who gives you total freedom to be yourself.
 
 > I can't listen to that much Wagner. I start getting the urge to conquer Poland.
+
+> It is never too late to be what you might have been.
