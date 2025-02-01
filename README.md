@@ -880,3 +880,5 @@
 > I can't listen to that much Wagner. I start getting the urge to conquer Poland.
 
 > It is never too late to be what you might have been.
+
+> Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
