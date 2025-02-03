@@ -884,3 +884,5 @@
 > Friendship marks a life even more deeply than love. Love risks degenerating into obsession, friendship is never anything but sharing.
 
 > Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
+
+> Technology is the campfire around which we tell our stories.
