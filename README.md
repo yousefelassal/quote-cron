@@ -886,3 +886,5 @@
 > Prejudice is a burden that confuses the past, threatens the future and renders the present inaccessible.
 
 > Technology is the campfire around which we tell our stories.
+
+> Education is the most powerful weapon which you can use to change the world.
