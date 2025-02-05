@@ -888,3 +888,5 @@
 > Technology is the campfire around which we tell our stories.
 
 > Education is the most powerful weapon which you can use to change the world.
+
+> Much wisdom often goes with fewest words.
