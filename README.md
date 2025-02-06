@@ -890,3 +890,5 @@
 > Education is the most powerful weapon which you can use to change the world.
 
 > Much wisdom often goes with fewest words.
+
+> All phenomena are preceded by the mind, created by the mind, and have the mind as their master.
