@@ -892,3 +892,5 @@
 > Much wisdom often goes with fewest words.
 
 > All phenomena are preceded by the mind, created by the mind, and have the mind as their master.
+
+> Much wisdom often goes with fewest words.
