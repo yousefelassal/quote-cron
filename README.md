@@ -894,3 +894,5 @@
 > All phenomena are preceded by the mind, created by the mind, and have the mind as their master.
 
 > Much wisdom often goes with fewest words.
+
+> I do not know the American gentleman, god forgive me for putting two such words together.
