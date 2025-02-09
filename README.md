@@ -896,3 +896,5 @@
 > Much wisdom often goes with fewest words.
 
 > I do not know the American gentleman, god forgive me for putting two such words together.
+
+> Friendship needs no words - it is solitude delivered from the anguish of loneliness.
