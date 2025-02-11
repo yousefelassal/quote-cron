@@ -900,3 +900,5 @@
 > Friendship needs no words - it is solitude delivered from the anguish of loneliness.
 
 > Wishing to be friends is quick work, but friendship is a slow ripening fruit.
+
+> Marriage: A friendship recognized by the police.
