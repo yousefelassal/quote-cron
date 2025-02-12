@@ -902,3 +902,5 @@
 > Wishing to be friends is quick work, but friendship is a slow ripening fruit.
 
 > Marriage: A friendship recognized by the police.
+
+> Sadness flies away on the wings of time.
