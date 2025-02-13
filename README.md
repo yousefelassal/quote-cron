@@ -904,3 +904,5 @@
 > Marriage: A friendship recognized by the police.
 
 > Sadness flies away on the wings of time.
+
+> The only way to have a friend is to be one.
