@@ -906,3 +906,5 @@
 > Sadness flies away on the wings of time.
 
 > The only way to have a friend is to be one.
+
+> With the realization of one's own potential and self-confidence in one's ability, one can build a better world.
