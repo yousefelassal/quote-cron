@@ -910,3 +910,5 @@
 > With the realization of one's own potential and self-confidence in one's ability, one can build a better world.
 
 > Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
+
+> A true friend is someone who is there for you when he'd rather be anywhere else.
