@@ -914,3 +914,5 @@
 > A true friend is someone who is there for you when he'd rather be anywhere else.
 
 > There is no friendship, no love, like that of the parent for the child.
+
+> It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
