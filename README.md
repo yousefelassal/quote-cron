@@ -916,3 +916,5 @@
 > There is no friendship, no love, like that of the parent for the child.
 
 > It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
+
+> Light tomorrow with today!
