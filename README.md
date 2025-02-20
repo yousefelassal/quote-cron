@@ -918,3 +918,5 @@
 > It is the nature of the wise to resist pleasures, but the foolish to be a slave to them.
 
 > Light tomorrow with today!
+
+> No day in which you learn something is a complete loss.
