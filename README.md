@@ -922,3 +922,5 @@
 > No day in which you learn something is a complete loss.
 
 > Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.
+
+> It has never been my object to record my dreams, just to realize them.
