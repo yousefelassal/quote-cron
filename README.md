@@ -924,3 +924,5 @@
 > Imagination is more important than knowledge. For while knowledge defines all we currently know and understand, imagination points to all we might yet discover and create.
 
 > It has never been my object to record my dreams, just to realize them.
+
+> If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
