@@ -926,3 +926,5 @@
 > It has never been my object to record my dreams, just to realize them.
 
 > If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
+
+> I don't want to achieve immortality through my work... I want to achieve it through not dying.
