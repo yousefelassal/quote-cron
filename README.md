@@ -928,3 +928,5 @@
 > If you talk to a man in a language he understands, that goes to his head. If you talk to him in his language, that goes to his heart.
 
 > I don't want to achieve immortality through my work... I want to achieve it through not dying.
+
+> The less effort, the faster and more powerful you will be.
