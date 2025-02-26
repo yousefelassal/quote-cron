@@ -930,3 +930,5 @@
 > I don't want to achieve immortality through my work... I want to achieve it through not dying.
 
 > The less effort, the faster and more powerful you will be.
+
+> The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
