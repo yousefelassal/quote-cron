@@ -932,3 +932,5 @@
 > The less effort, the faster and more powerful you will be.
 
 > The will to win, the desire to succeed, the urge to reach your full potential... these are the keys that will unlock the door to personal excellence.
+
+> He who knows others is wise. He who knows himself is enlightened.
