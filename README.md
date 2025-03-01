@@ -936,3 +936,5 @@
 > He who knows others is wise. He who knows himself is enlightened.
 
 > Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness.
+
+> Life is what you make of it. Always has been, always will be.
