@@ -938,3 +938,5 @@
 > Something opens our wings. Something makes boredom and hurt disappear. Someone fills the cup in front of us: We taste only sacredness.
 
 > Life is what you make of it. Always has been, always will be.
+
+> To command is to serve, nothing more and nothing less.
