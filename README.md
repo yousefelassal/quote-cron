@@ -940,3 +940,5 @@
 > Life is what you make of it. Always has been, always will be.
 
 > To command is to serve, nothing more and nothing less.
+
+> Formula for success: under promise and over deliver.
