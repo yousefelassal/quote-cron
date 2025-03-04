@@ -942,3 +942,5 @@
 > To command is to serve, nothing more and nothing less.
 
 > Formula for success: under promise and over deliver.
+
+> To fly, we have to have resistance.
