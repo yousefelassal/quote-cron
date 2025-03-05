@@ -944,3 +944,5 @@
 > Formula for success: under promise and over deliver.
 
 > To fly, we have to have resistance.
+
+> Knowledge rests not upon truth alone, but upon error also.
