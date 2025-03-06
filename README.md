@@ -946,3 +946,5 @@
 > To fly, we have to have resistance.
 
 > Knowledge rests not upon truth alone, but upon error also.
+
+> Never bend your head. Always hold it high. Look the world right in the eye.
