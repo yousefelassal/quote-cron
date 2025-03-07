@@ -948,3 +948,5 @@
 > Knowledge rests not upon truth alone, but upon error also.
 
 > Never bend your head. Always hold it high. Look the world right in the eye.
+
+> The person who makes a success of living is the one who see his goal steadily and aims for it unswervingly. That is dedication.
