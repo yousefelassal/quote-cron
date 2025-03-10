@@ -954,3 +954,5 @@
 > Do not wait; the time will never be 'just right.' Start where you stand, and work with whatever tools you may have at your command, and better tools will be found as you go along.
 
 > If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.
+
+> What the caterpillar calls the end of the world, the master calls a butterfly.
