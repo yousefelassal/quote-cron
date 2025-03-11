@@ -956,3 +956,5 @@
 > If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.
 
 > What the caterpillar calls the end of the world, the master calls a butterfly.
+
+> Be Impeccable with Your Word. Speak with integrity. Say only what you mean. Avoid using the word to speak against yourself or to gossip about others. Use the power of your word in the direction of truth and love.
