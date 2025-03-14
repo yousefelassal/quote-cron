@@ -962,3 +962,5 @@
 > In all chaos there is a cosmos, in all disorder a secret order.
 
 > The ultimate promise of technology is to make us master of a world that we command by the push of a button.
+
+> I am not bothered by the fact that I am unknown. I am bothered when I do not know others.
