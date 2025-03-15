@@ -964,3 +964,5 @@
 > The ultimate promise of technology is to make us master of a world that we command by the push of a button.
 
 > I am not bothered by the fact that I am unknown. I am bothered when I do not know others.
+
+> Life is a succession of moments. To live each one is to succeed.
