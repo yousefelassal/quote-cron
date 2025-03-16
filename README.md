@@ -966,3 +966,5 @@
 > I am not bothered by the fact that I am unknown. I am bothered when I do not know others.
 
 > Life is a succession of moments. To live each one is to succeed.
+
+> It's supposed to be automatic, but actually you have to push this button.
