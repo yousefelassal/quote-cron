@@ -970,3 +970,5 @@
 > It's supposed to be automatic, but actually you have to push this button.
 
 > Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.
+
+> Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.
