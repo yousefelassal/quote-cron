@@ -972,3 +972,5 @@
 > Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all.
 
 > Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.
+
+> We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
