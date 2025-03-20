@@ -974,3 +974,5 @@
 > Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.
 
 > We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
+
+> One's friends are that part of the human race with which one can be human.
