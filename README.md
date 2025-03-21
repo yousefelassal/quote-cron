@@ -976,3 +976,5 @@
 > We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
 
 > One's friends are that part of the human race with which one can be human.
+
+> The best preparation for tomorrow is doing your best today.
