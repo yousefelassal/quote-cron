@@ -978,3 +978,5 @@
 > One's friends are that part of the human race with which one can be human.
 
 > The best preparation for tomorrow is doing your best today.
+
+> To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.
