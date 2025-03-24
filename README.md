@@ -982,3 +982,5 @@
 > To free us from the expectations of others, to give us back to ourselves... there lies the great, singular power of self-respect.
 
 > Time you enjoy wasting, was not wasted.
+
+> I do not believe in a fate that falls on men however they act; but I do believe in a fate that falls on them unless they act.
