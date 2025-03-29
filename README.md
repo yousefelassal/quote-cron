@@ -992,3 +992,5 @@
 > The power of intuitive understanding will protect you from harm until the end of your days.
 
 > One is not called noble who harms living beings. By not harming living beings one is called noble.
+
+> The best preparation for tomorrow is doing your best today.
