@@ -994,3 +994,5 @@
 > One is not called noble who harms living beings. By not harming living beings one is called noble.
 
 > The best preparation for tomorrow is doing your best today.
+
+> Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
