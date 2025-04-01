@@ -998,3 +998,5 @@
 > Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
 
 > Build a better mousetrap and the world will beat a path to your door.
+
+> The thoughts we choose to think are the tools we use to paint the canvas of our lives.
