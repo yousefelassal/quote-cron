@@ -1000,3 +1000,5 @@
 > Build a better mousetrap and the world will beat a path to your door.
 
 > The thoughts we choose to think are the tools we use to paint the canvas of our lives.
+
+> Friendship is the marriage of the soul, and this marriage is liable to divorce.
