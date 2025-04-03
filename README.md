@@ -1002,3 +1002,5 @@
 > The thoughts we choose to think are the tools we use to paint the canvas of our lives.
 
 > Friendship is the marriage of the soul, and this marriage is liable to divorce.
+
+> To be tested is good. The challenged life may be the best therapist.
