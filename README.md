@@ -1004,3 +1004,5 @@
 > Friendship is the marriage of the soul, and this marriage is liable to divorce.
 
 > To be tested is good. The challenged life may be the best therapist.
+
+> If you don't like something, change it. If you can't change it, change your attitude.
