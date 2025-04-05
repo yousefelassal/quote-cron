@@ -1006,3 +1006,5 @@
 > To be tested is good. The challenged life may be the best therapist.
 
 > If you don't like something, change it. If you can't change it, change your attitude.
+
+> Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.
