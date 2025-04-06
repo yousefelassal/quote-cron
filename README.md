@@ -1008,3 +1008,5 @@
 > If you don't like something, change it. If you can't change it, change your attitude.
 
 > Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.
+
+> When fate hands us a lemon, let's try to make lemonade.
