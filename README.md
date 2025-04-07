@@ -1010,3 +1010,5 @@
 > Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.
 
 > When fate hands us a lemon, let's try to make lemonade.
+
+> My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.
