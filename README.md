@@ -1012,3 +1012,5 @@
 > When fate hands us a lemon, let's try to make lemonade.
 
 > My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.
+
+> The journey of a thousand miles begins with one step.
