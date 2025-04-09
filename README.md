@@ -1014,3 +1014,5 @@
 > My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.
 
 > The journey of a thousand miles begins with one step.
+
+> You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.
