@@ -1016,3 +1016,5 @@
 > The journey of a thousand miles begins with one step.
 
 > You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.
+
+> If I had only known, I would have been a locksmith.
