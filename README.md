@@ -1020,3 +1020,5 @@
 > If I had only known, I would have been a locksmith.
 
 > When the solution is simple, God is answering.
+
+> Patience is the companion of wisdom.
