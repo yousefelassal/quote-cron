@@ -1024,3 +1024,5 @@
 > Patience is the companion of wisdom.
 
 > Keep me away from the wisdom which does not cry, the philosophy which does not laugh and the greatness which does not bow before children.
+
+> It does not matter how slowly you go as long as you do not stop.
