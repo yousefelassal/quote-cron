@@ -1028,3 +1028,5 @@
 > It does not matter how slowly you go as long as you do not stop.
 
 > Give whatever you are doing and whoever you are with the gift of your attention.
+
+> We cannot do everything at once, but we can do something at once.
