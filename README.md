@@ -1030,3 +1030,5 @@
 > Give whatever you are doing and whoever you are with the gift of your attention.
 
 > We cannot do everything at once, but we can do something at once.
+
+> Ardently do today what must be done. Who knows? Tomorrow, death comes.
