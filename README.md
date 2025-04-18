@@ -1032,3 +1032,5 @@
 > We cannot do everything at once, but we can do something at once.
 
 > Ardently do today what must be done. Who knows? Tomorrow, death comes.
+
+> Don't talk about what you have done or what you are going to do.
