@@ -1034,3 +1034,5 @@
 > Ardently do today what must be done. Who knows? Tomorrow, death comes.
 
 > Don't talk about what you have done or what you are going to do.
+
+> The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world.
