@@ -1036,3 +1036,5 @@
 > Don't talk about what you have done or what you are going to do.
 
 > The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world.
+
+> If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.
