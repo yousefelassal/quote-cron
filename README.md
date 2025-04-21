@@ -1038,3 +1038,5 @@
 > The world is afflicted by death and decay. But the wise do not grieve, having realized the nature of the world.
 
 > If you lose today, win tomorrow. In this never-ending spirit of challenge is the heart of a victor.
+
+> For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone.
