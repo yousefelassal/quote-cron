@@ -1042,3 +1042,5 @@
 > For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone.
 
 > Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy.
+
+> Hell, there are no rules here-- we're trying to accomplish something.
