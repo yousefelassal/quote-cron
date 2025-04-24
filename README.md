@@ -1044,3 +1044,5 @@
 > Simply put, you believer that things or people make you unhappy, but this is not accurate. You make yourself unhappy.
 
 > Hell, there are no rules here-- we're trying to accomplish something.
+
+> Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world.
