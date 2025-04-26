@@ -1048,3 +1048,5 @@
 > Know that although in the eternal scheme of things you are small, you are also unique and irreplaceable, as are all your fellow humans everywhere in the world.
 
 > There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.
+
+> No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.
