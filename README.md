@@ -1050,3 +1050,5 @@
 > There are two ways to slide easily through life: to believe everything or to doubt everything; both ways save us from thinking.
 
 > No distance of place or lapse of time can lessen the friendship of those who are thoroughly persuaded of each other's worth.
+
+> Reality is merely an illusion, albeit a very persistent one.
