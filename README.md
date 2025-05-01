@@ -1058,3 +1058,5 @@
 > Action is eloquence.
 
 > Friendship is almost always the union of a part of one mind with the part of another; people are friends in spots.
+
+> There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
