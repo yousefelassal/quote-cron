@@ -1066,3 +1066,5 @@
 > If you don't like something, change it. If you can't change it, change your attitude.
 
 > Be miserable. Or motivate yourself. Whatever has to be done, it's always your choice.
+
+> Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
