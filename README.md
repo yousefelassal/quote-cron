@@ -1070,3 +1070,5 @@
 > Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
 
 > To do all that one is able to do, is to be a man; to do all that one would like to do, is to be a god.
+
+> The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.
