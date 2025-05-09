@@ -1074,3 +1074,5 @@
 > The three great essentials to achieve anything worthwhile are: Hard work, Stick-to-itiveness, and Common sense.
 
 > If you think you can, you can. And if you think you can't, you're right.
+
+> There are three faithful friends - an old wife, an old dog, and ready money.
