@@ -1078,3 +1078,5 @@
 > There are three faithful friends - an old wife, an old dog, and ready money.
 
 > People don't notice whether it's winter or summer when they're happy.
+
+> It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.
