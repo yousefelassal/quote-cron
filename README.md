@@ -1082,3 +1082,5 @@
 > It is important to our friends to believe that we are unreservedly frank with them, and important to friendship that we are not.
 
 > When written in Chinese, the word 'crisis' is composed of two characters. One represents danger and the other represents opportunity.
+
+> Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.
