@@ -1086,3 +1086,5 @@
 > Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.
 
 > Opportunity is missed by most people because it is dressed in overalls and looks like work.
+
+> A wise man will make more opportunities than he finds.
