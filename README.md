@@ -1088,3 +1088,5 @@
 > Opportunity is missed by most people because it is dressed in overalls and looks like work.
 
 > A wise man will make more opportunities than he finds.
+
+> Light tomorrow with today!
