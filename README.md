@@ -1090,3 +1090,5 @@
 > A wise man will make more opportunities than he finds.
 
 > Light tomorrow with today!
+
+> What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.
