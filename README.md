@@ -1094,3 +1094,5 @@
 > What matters is the value we've created in our lives, the people we've made happy and how much we've grown as people.
 
 > Life is 10% what happens to you and 90% how you react to it.
+
+> Remember that the most valuable antiques are dear old friends.
