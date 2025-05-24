@@ -1104,3 +1104,5 @@
 > Wisdom is the supreme part of happiness.
 
 > To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
+
+> Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.
