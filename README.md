@@ -1108,3 +1108,5 @@
 > Imagination disposes of everything; it creates beauty, justice, and happiness, which are everything in this world.
 
 > All action results from thought, so it is thoughts that matter.
+
+> Autumn is a second spring when every leaf is a flower.
