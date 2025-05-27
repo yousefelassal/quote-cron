@@ -1110,3 +1110,5 @@
 > All action results from thought, so it is thoughts that matter.
 
 > Autumn is a second spring when every leaf is a flower.
+
+> When in doubt, don't.
