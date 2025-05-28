@@ -1112,3 +1112,5 @@
 > Autumn is a second spring when every leaf is a flower.
 
 > When in doubt, don't.
+
+> To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
