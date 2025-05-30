@@ -1116,3 +1116,5 @@
 > To exist is to change, to change is to mature, to mature is to go on creating oneself endlessly.
 
 > Choose a job you love, and you will never have to work a day in your life.
+
+> Wisdom has never made a bigot, but learning has.
