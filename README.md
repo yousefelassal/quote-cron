@@ -1120,3 +1120,5 @@
 > Wisdom has never made a bigot, but learning has.
 
 > Friendship is Love without his wings!
+
+> What you do today can improve all your tomorrows.
