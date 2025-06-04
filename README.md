@@ -1126,3 +1126,5 @@
 > It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.
 
 > Friendship, like the immortality of the soul, is too good to be believed.
+
+> Our kindness may be the most persuasive argument for that which we believe.
