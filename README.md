@@ -1136,3 +1136,5 @@
 > Love isn't something you find. Love is something that finds you.
 
 > Rare as is true love, true friendship is rarer.
+
+> A friend is a gift you give yourself.
