@@ -1138,3 +1138,5 @@
 > Rare as is true love, true friendship is rarer.
 
 > A friend is a gift you give yourself.
+
+> You can stand tall without standing on someone. You can be a victor without having victims.
