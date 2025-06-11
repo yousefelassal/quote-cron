@@ -1140,3 +1140,5 @@
 > A friend is a gift you give yourself.
 
 > You can stand tall without standing on someone. You can be a victor without having victims.
+
+> All our dreams can come true, if we have the courage to pursue them.
