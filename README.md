@@ -1144,3 +1144,5 @@
 > All our dreams can come true, if we have the courage to pursue them.
 
 > I can't listen to that much Wagner. I start getting the urge to conquer Poland.
+
+> History is written by the victors.
