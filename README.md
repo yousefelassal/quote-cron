@@ -1146,3 +1146,5 @@
 > I can't listen to that much Wagner. I start getting the urge to conquer Poland.
 
 > History is written by the victors.
+
+> The minute you settle for less than you deserve, you get even less than you settled for.
