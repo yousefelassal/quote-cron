@@ -1148,3 +1148,5 @@
 > History is written by the victors.
 
 > The minute you settle for less than you deserve, you get even less than you settled for.
+
+> Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.
