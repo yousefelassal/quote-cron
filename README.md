@@ -1152,3 +1152,5 @@
 > Ceasing to do evil, Cultivating the good, Purifying the heart: This is the teaching of the Buddhas.
 
 > Pick battles big enough to matter, small enough to win.
+
+> Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.
