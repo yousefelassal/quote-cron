@@ -1154,3 +1154,5 @@
 > Pick battles big enough to matter, small enough to win.
 
 > Each man has his own vocation; his talent is his call. There is one direction in which all space is open to him.
+
+> The inherent vice of capitalism is the unequal sharing of blessings; the inherent virtue of socialism is the equal sharing of miseries.
