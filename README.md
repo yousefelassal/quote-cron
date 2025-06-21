@@ -1160,3 +1160,5 @@
 > It's important to know that words don't move mountains. Work, exacting work moves mountains.
 
 > It is better to understand a little than to misunderstand a lot.
+
+> The doorstep to the temple of wisdom is a knowledge of our own ignorance.
