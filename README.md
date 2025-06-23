@@ -1164,3 +1164,5 @@
 > The doorstep to the temple of wisdom is a knowledge of our own ignorance.
 
 > A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.
+
+> The root of suffering is attachment.
