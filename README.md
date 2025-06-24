@@ -1166,3 +1166,5 @@
 > A heart well prepared for adversity in bad times hopes, and in good times fears for a change in fortune.
 
 > The root of suffering is attachment.
+
+> The more you care, the stronger you can be.
