@@ -1168,3 +1168,5 @@
 > The root of suffering is attachment.
 
 > The more you care, the stronger you can be.
+
+> One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.
