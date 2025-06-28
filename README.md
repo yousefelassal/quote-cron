@@ -1174,3 +1174,5 @@
 > The friend who can be silent with us in a moment of despair or confusion, who can stay with us in an hour of grief and bereavement, who can tolerate not knowing... not healing, not curing... that is a friend who cares.
 
 > Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't.
+
+> Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.
