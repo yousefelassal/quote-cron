@@ -1176,3 +1176,5 @@
 > Know what's important and what isn't. Have the wisdom to know the right thing to do, the integrity to do it, the character to stand up to those who don't, and the courage to stop those who won't.
 
 > Of course there is no formula for success except perhaps an unconditional acceptance of life and what it brings.
+
+> Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.
