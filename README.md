@@ -1180,3 +1180,5 @@
 > Be not afraid of greatness: some are born great, some achieve greatness, and some have greatness thrust upon them.
 
 > A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.
+
+> Don't smother each other. No one can grow in the shade.
