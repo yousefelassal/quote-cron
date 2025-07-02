@@ -1182,3 +1182,5 @@
 > A fine quotation is a diamond on the finger of a man of wit, and a pebble in the hand of a fool.
 
 > Don't smother each other. No one can grow in the shade.
+
+> The more sand that has escaped from the hourglass of our life, the clearer we should see through it.
