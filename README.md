@@ -1190,3 +1190,5 @@
 > A man sees in the world what he carries in his heart.
 
 > In friendship as well as love, ignorance very often contributes more to our happiness than knowledge.
+
+> Life is 10% what happens to you and 90% how you react to it.
