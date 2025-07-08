@@ -1194,3 +1194,5 @@
 > Life is 10% what happens to you and 90% how you react to it.
 
 > It is not in the stars to hold our destiny but in ourselves.
+
+> Nothing happens unless first we dream.
