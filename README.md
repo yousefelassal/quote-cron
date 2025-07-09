@@ -1196,3 +1196,5 @@
 > It is not in the stars to hold our destiny but in ourselves.
 
 > Nothing happens unless first we dream.
+
+> I had three chairs in my house; one for solitude, two for friendship, three for society.
