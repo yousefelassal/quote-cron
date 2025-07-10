@@ -1198,3 +1198,5 @@
 > Nothing happens unless first we dream.
 
 > I had three chairs in my house; one for solitude, two for friendship, three for society.
+
+> All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts.
