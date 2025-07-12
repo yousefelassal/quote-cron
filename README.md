@@ -1202,3 +1202,5 @@
 > All the world is a stage, And all the men and women merely players. They have their exits and entrances; Each man in his time plays many parts.
 
 > I have done my best: that is about all the philosophy of living one needs.
+
+> I'd rather regret the things that I have done than the things that I have not done.
