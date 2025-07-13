@@ -1204,3 +1204,5 @@
 > I have done my best: that is about all the philosophy of living one needs.
 
 > I'd rather regret the things that I have done than the things that I have not done.
+
+> When you reach the end of your rope, tie a knot in it and hang on.
