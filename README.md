@@ -1206,3 +1206,5 @@
 > I'd rather regret the things that I have done than the things that I have not done.
 
 > When you reach the end of your rope, tie a knot in it and hang on.
+
+> An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
