@@ -1208,3 +1208,5 @@
 > When you reach the end of your rope, tie a knot in it and hang on.
 
 > An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
+
+> Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
