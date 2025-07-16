@@ -1210,3 +1210,5 @@
 > An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
 
 > Man is equally incapable of seeing the nothingness from which he emerges and the infinity in which he is engulfed.
+
+> Be true to yourself, help others, make each day your masterpiece, make friendship a fine art, drink deeply from good books - especially the Bible, build a shelter against a rainy day, give thanks for your blessings and pray for guidance every day.
