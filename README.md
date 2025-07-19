@@ -1216,3 +1216,5 @@
 > You cannot escape the responsibility of tomorrow by evading it today.
 
 > Friendship is the marriage of the soul, and this marriage is liable to divorce.
+
+> Whoever is happy will make others happy, too.
