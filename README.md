@@ -1218,3 +1218,5 @@
 > Friendship is the marriage of the soul, and this marriage is liable to divorce.
 
 > Whoever is happy will make others happy, too.
+
+> It has long been an axiom of mine that the little things are infinitely the most important.
