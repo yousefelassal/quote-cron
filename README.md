@@ -1220,3 +1220,5 @@
 > Whoever is happy will make others happy, too.
 
 > It has long been an axiom of mine that the little things are infinitely the most important.
+
+> Bad times have a scientific value. These are occasions a good learner would not miss.
