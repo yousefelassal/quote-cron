@@ -1222,3 +1222,5 @@
 > It has long been an axiom of mine that the little things are infinitely the most important.
 
 > Bad times have a scientific value. These are occasions a good learner would not miss.
+
+> Every man takes the limits of his own field of vision for the limits of the world.
