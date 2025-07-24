@@ -1226,3 +1226,5 @@
 > Every man takes the limits of his own field of vision for the limits of the world.
 
 > If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.
+
+> Good luck is another name for tenacity of purpose.
