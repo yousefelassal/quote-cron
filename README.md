@@ -1228,3 +1228,5 @@
 > If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.
 
 > Good luck is another name for tenacity of purpose.
+
+> Change your thoughts and you change your world.
