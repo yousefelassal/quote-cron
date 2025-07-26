@@ -1230,3 +1230,5 @@
 > Good luck is another name for tenacity of purpose.
 
 > Change your thoughts and you change your world.
+
+> It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.
