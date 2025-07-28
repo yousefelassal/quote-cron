@@ -1234,3 +1234,5 @@
 > It is one of the severest tests of friendship to tell your friend his faults. So to love a man that you cannot bear to see a stain upon him, and to speak painful truth through loving words, that is friendship.
 
 > To find a man's true character, play golf with him.
+
+> Today you are you! That is truer than true! There is no one alive who is you-er than you!
