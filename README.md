@@ -1236,3 +1236,5 @@
 > To find a man's true character, play golf with him.
 
 > Today you are you! That is truer than true! There is no one alive who is you-er than you!
+
+> Just because something doesn't do what you planned it to do doesn't mean it's useless.
