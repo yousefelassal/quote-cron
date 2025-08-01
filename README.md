@@ -1242,3 +1242,5 @@
 > The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
 
 > Just because something doesn't do what you planned it to do doesn't mean it's useless.
+
+> It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
