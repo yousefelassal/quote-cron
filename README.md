@@ -1244,3 +1244,5 @@
 > Just because something doesn't do what you planned it to do doesn't mean it's useless.
 
 > It isn't what happens to us that causes us to suffer; it's what we say to ourselves about what happens.
+
+> I am always doing that which I cannot do, in order that I may learn how to do it.
