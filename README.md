@@ -1250,3 +1250,5 @@
 > Happiness depends upon ourselves.
 
 > Take things as they are. Punch when you have to punch. Kick when you have to kick.
+
+> Those that know, do. Those that understand, teach.
