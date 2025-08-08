@@ -1256,3 +1256,5 @@
 > The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low and achieving our mark.
 
 > Your sacred space is where you can find yourself again and again.
+
+> The pine stays green in winter... wisdom in hardship.
