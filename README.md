@@ -1258,3 +1258,5 @@
 > Your sacred space is where you can find yourself again and again.
 
 > The pine stays green in winter... wisdom in hardship.
+
+> The invariable mark of wisdom is to see the miraculous in the common.
