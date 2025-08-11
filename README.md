@@ -1262,3 +1262,5 @@
 > The invariable mark of wisdom is to see the miraculous in the common.
 
 > I know not age, nor weariness nor defeat.
+
+> The pine stays green in winter... wisdom in hardship.
