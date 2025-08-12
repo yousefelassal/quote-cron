@@ -1264,3 +1264,5 @@
 > I know not age, nor weariness nor defeat.
 
 > The pine stays green in winter... wisdom in hardship.
+
+> I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.
