@@ -1266,3 +1266,5 @@
 > The pine stays green in winter... wisdom in hardship.
 
 > I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.
+
+> Our most intimate friend is not he to whom we show the worst, but the best of our nature.
