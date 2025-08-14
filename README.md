@@ -1268,3 +1268,5 @@
 > I believe that a simple and unassuming manner of life is best for everyone, best both for the body and the mind.
 
 > Our most intimate friend is not he to whom we show the worst, but the best of our nature.
+
+> Everything has beauty, but not everyone sees it.
