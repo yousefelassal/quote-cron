@@ -1270,3 +1270,5 @@
 > Our most intimate friend is not he to whom we show the worst, but the best of our nature.
 
 > Everything has beauty, but not everyone sees it.
+
+> Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
