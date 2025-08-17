@@ -1274,3 +1274,5 @@
 > Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
 
 > It does not matter how slowly you go as long as you do not stop.
+
+> This is the final test of a gentleman: his respect for those who can be of no possible value to him.
