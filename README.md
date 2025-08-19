@@ -1278,3 +1278,5 @@
 > This is the final test of a gentleman: his respect for those who can be of no possible value to him.
 
 > Nature is a mutable cloud which is always and never the same.
+
+> Be great in act, as you have been in thought.
