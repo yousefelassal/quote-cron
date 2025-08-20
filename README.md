@@ -1280,3 +1280,5 @@
 > Nature is a mutable cloud which is always and never the same.
 
 > Be great in act, as you have been in thought.
+
+> Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes.
