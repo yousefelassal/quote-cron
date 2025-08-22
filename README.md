@@ -1284,3 +1284,5 @@
 > Your vision will become clear only when you can look into your own heart. Who looks outside, dreams, who looks inside, awakes.
 
 > If there is such a thing as a good marriage, it is because it resembles friendship rather than love.
+
+> Love is the attempt to form a friendship inspired by beauty.
