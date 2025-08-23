@@ -1286,3 +1286,5 @@
 > If there is such a thing as a good marriage, it is because it resembles friendship rather than love.
 
 > Love is the attempt to form a friendship inspired by beauty.
+
+> When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.
