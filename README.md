@@ -1288,3 +1288,5 @@
 > Love is the attempt to form a friendship inspired by beauty.
 
 > When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.
+
+> Anybody can make history. Only a great man can write it.
