@@ -1294,3 +1294,5 @@
 > Friendship is held to be the severest test of character. It is easy, we think, to be loyal to a family and clan, whose blood is in your own veins.
 
 > Chaos and Order are not enemies, only opposites.
+
+> A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.
