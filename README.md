@@ -1296,3 +1296,5 @@
 > Chaos and Order are not enemies, only opposites.
 
 > A monarchy conducted with infinite wisdom and infinite benevolence is the most perfect of all possible governments.
+
+> Reviewing what you have learned and learning anew, you are fit to be a teacher.
