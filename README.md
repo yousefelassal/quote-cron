@@ -1300,3 +1300,5 @@
 > Reviewing what you have learned and learning anew, you are fit to be a teacher.
 
 > Always keep an open mind and a compassionate heart.
+
+> In three words I can sum up everything I've learned about life: it goes on.
