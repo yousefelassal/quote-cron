@@ -1302,3 +1302,5 @@
 > Always keep an open mind and a compassionate heart.
 
 > In three words I can sum up everything I've learned about life: it goes on.
+
+> I will prepare and someday my chance will come.
