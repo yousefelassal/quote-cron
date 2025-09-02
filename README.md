@@ -1306,3 +1306,5 @@
 > I will prepare and someday my chance will come.
 
 > Wisdom has never made a bigot, but learning has.
+
+> Only I can change my life. No one can do it for me.
