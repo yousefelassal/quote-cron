@@ -1308,3 +1308,5 @@
 > Wisdom has never made a bigot, but learning has.
 
 > Only I can change my life. No one can do it for me.
+
+> The past has no power to stop you from being present now. Only your grievance about the past can do that.
