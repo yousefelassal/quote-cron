@@ -1310,3 +1310,5 @@
 > Only I can change my life. No one can do it for me.
 
 > The past has no power to stop you from being present now. Only your grievance about the past can do that.
+
+> I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.
