@@ -1314,3 +1314,5 @@
 > I believe that we are solely responsible for our choices, and we have to accept the consequences of every deed, word, and thought throughout our lifetime.
 
 > Nobody made a greater mistake than he who did nothing because he could do only a little.
+
+> If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
