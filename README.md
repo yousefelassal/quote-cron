@@ -1316,3 +1316,5 @@
 > Nobody made a greater mistake than he who did nothing because he could do only a little.
 
 > If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
+
+> Gratitude is the fairest blossom which springs from the soul.
