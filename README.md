@@ -1318,3 +1318,5 @@
 > If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
 
 > Gratitude is the fairest blossom which springs from the soul.
+
+> If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
