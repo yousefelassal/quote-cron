@@ -1320,3 +1320,5 @@
 > Gratitude is the fairest blossom which springs from the soul.
 
 > If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
+
+> Nature gave us one tongue and two ears so we could hear twice as much as we speak.
