@@ -1322,3 +1322,5 @@
 > If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
 
 > Nature gave us one tongue and two ears so we could hear twice as much as we speak.
+
+> You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.
