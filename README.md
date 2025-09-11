@@ -1324,3 +1324,5 @@
 > Nature gave us one tongue and two ears so we could hear twice as much as we speak.
 
 > You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.
+
+> Truth, and goodness, and beauty are but different faces of the same all.
