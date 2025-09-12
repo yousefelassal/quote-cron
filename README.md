@@ -1326,3 +1326,5 @@
 > You spend a good piece of your life gripping a baseball and in the end it turns out that it was the other way around all the time.
 
 > Truth, and goodness, and beauty are but different faces of the same all.
+
+> Accept challenges, so that you may feel the exhilaration of victory.
