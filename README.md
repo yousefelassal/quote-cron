@@ -1328,3 +1328,5 @@
 > Truth, and goodness, and beauty are but different faces of the same all.
 
 > Accept challenges, so that you may feel the exhilaration of victory.
+
+> When one tugs at a single thing in nature, he finds it attached to the rest of the world.
