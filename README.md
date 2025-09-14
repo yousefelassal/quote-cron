@@ -1330,3 +1330,5 @@
 > Accept challenges, so that you may feel the exhilaration of victory.
 
 > When one tugs at a single thing in nature, he finds it attached to the rest of the world.
+
+> If you don't go after what you want, you'll never have it. If you don't ask, the answer is always no. If you don't step forward, you're always in the same place.
