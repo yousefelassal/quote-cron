@@ -1336,3 +1336,5 @@
 > We've got to have a dream if we are going to make a dream come true.
 
 > Life is so constructed that an event does not, cannot, will not, match the expectation.
+
+> The best way to predict your future is to create it.
