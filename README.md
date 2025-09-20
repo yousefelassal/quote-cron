@@ -1342,3 +1342,5 @@
 > We've got to have a dream if we are going to make a dream come true.
 
 > I can't believe that God put us on this earth to be ordinary.
+
+> Freedom is not worth having if it does not connote freedom to err.
