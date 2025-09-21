@@ -1344,3 +1344,5 @@
 > I can't believe that God put us on this earth to be ordinary.
 
 > Freedom is not worth having if it does not connote freedom to err.
+
+> Kindness is the golden chain by which society is bound together.
