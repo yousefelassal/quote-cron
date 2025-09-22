@@ -1346,3 +1346,5 @@
 > Freedom is not worth having if it does not connote freedom to err.
 
 > Kindness is the golden chain by which society is bound together.
+
+> Work while you have the light. You are responsible for the talent that has been entrusted to you.
