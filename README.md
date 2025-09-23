@@ -1348,3 +1348,5 @@
 > Kindness is the golden chain by which society is bound together.
 
 > Work while you have the light. You are responsible for the talent that has been entrusted to you.
+
+> Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.
