@@ -1350,3 +1350,5 @@
 > Work while you have the light. You are responsible for the talent that has been entrusted to you.
 
 > Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.
+
+> Can you imagine what I would do if I could do all I can?
