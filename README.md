@@ -1352,3 +1352,5 @@
 > Just be patient. Let the game come to you. Don't rush. Be quick, but don't hurry.
 
 > Can you imagine what I would do if I could do all I can?
+
+> Make the most of yourself, for that is all there is of you.
