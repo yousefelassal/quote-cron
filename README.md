@@ -1354,3 +1354,5 @@
 > Can you imagine what I would do if I could do all I can?
 
 > Make the most of yourself, for that is all there is of you.
+
+> There is nothing impossible to him who will try.
