@@ -1356,3 +1356,5 @@
 > Make the most of yourself, for that is all there is of you.
 
 > There is nothing impossible to him who will try.
+
+> I'm a great believer in luck and I find the harder I work, the more I have of it.
