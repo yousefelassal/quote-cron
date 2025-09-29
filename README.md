@@ -1360,3 +1360,5 @@
 > I'm a great believer in luck and I find the harder I work, the more I have of it.
 
 > If only wed stop trying to be happy wed have a pretty good time.
+
+> Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.
