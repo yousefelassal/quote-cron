@@ -1362,3 +1362,5 @@
 > If only wed stop trying to be happy wed have a pretty good time.
 
 > Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.
+
+> You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.
