@@ -1366,3 +1366,5 @@
 > You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.
 
 > There is no greater harm than that of time wasted.
+
+> By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.
