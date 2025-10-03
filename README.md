@@ -1368,3 +1368,5 @@
 > There is no greater harm than that of time wasted.
 
 > By oneself is evil done; by oneself is one defiled. By oneself is evil left undone; by oneself is one made pure.
+
+> You should ignore that person’s impure behavior by way of speech and body, and focus on the fact that they get an openness and clarity of heart from time to time. That’s how to get rid of resentment for that person.
