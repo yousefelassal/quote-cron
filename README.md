@@ -1374,3 +1374,5 @@
 > Beauty is not in the face; beauty is a light in the heart.
 
 > One should train in deeds of merit—generosity, a balanced life, developing a loving mind—that yield long-lasting happiness.
+
+> Sports do not build character. They reveal it.
