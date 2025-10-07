@@ -1376,3 +1376,5 @@
 > One should train in deeds of merit—generosity, a balanced life, developing a loving mind—that yield long-lasting happiness.
 
 > Sports do not build character. They reveal it.
+
+> For everything that lives is holy, life delights in life.
