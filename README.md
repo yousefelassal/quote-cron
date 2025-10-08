@@ -1378,3 +1378,5 @@
 > Sports do not build character. They reveal it.
 
 > For everything that lives is holy, life delights in life.
+
+> Myths which are believed in tend to become true.
