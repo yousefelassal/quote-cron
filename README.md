@@ -1382,3 +1382,5 @@
 > Myths which are believed in tend to become true.
 
 > We don't know a millionth of one percent about anything.
+
+> All that we see or seem is but a dream within a dream.
