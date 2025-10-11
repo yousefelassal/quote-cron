@@ -1384,3 +1384,5 @@
 > We don't know a millionth of one percent about anything.
 
 > All that we see or seem is but a dream within a dream.
+
+> Read as you taste fruit or savor wine, or enjoy friendship, love or life.
