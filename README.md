@@ -1386,3 +1386,5 @@
 > All that we see or seem is but a dream within a dream.
 
 > Read as you taste fruit or savor wine, or enjoy friendship, love or life.
+
+> Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.
