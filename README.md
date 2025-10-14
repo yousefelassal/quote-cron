@@ -1390,3 +1390,5 @@
 > Love at first sight is easy to understand; it's when two people have been looking at each other for a lifetime that it becomes a miracle.
 
 > A goal is a dream with a deadline.
+
+> No one has ever become poor by giving.
