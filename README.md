@@ -1392,3 +1392,5 @@
 > A goal is a dream with a deadline.
 
 > No one has ever become poor by giving.
+
+> We know the truth, not only by the reason, but by the heart.
