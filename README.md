@@ -1394,3 +1394,5 @@
 > No one has ever become poor by giving.
 
 > We know the truth, not only by the reason, but by the heart.
+
+> A good head and a good heart are always a formidable combination.
