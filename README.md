@@ -1398,3 +1398,5 @@
 > A good head and a good heart are always a formidable combination.
 
 > Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
+
+> Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
