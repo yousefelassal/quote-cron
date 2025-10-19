@@ -1400,3 +1400,5 @@
 > Through pride we are ever deceiving ourselves. But deep down below the surface of the average conscience a still, small voice says to us, something is out of tune.
 
 > Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
+
+> Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
