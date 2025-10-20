@@ -1402,3 +1402,5 @@
 > Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
 
 > Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
+
+> We are all something, but none of us are everything.
