@@ -1404,3 +1404,5 @@
 > Just as a solid rock is not shaken by the storm, even so the wise are not affected by praise or blame.
 
 > We are all something, but none of us are everything.
+
+> Never mistake motion for action.
