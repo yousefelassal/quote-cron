@@ -1406,3 +1406,5 @@
 > We are all something, but none of us are everything.
 
 > Never mistake motion for action.
+
+> A long habit of not thinking a thing wrong gives it a superficial appearance of being right.
