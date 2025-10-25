@@ -1412,3 +1412,5 @@
 > Parents can only give good advice or put them on the right paths, but the final forming of a person's character lies in their own hands.
 
 > I violated the Noah rule: Predicting rain doesn't count; building arks does.
+
+> If you correct your mind, the rest of your life will fall into place.
