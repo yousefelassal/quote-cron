@@ -1416,3 +1416,5 @@
 > If you correct your mind, the rest of your life will fall into place.
 
 > If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.
+
+> It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.
