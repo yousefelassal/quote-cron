@@ -1420,3 +1420,5 @@
 > It is difficult to achieve a spirit of genuine cooperation as long as people remain indifferent to the feelings and happiness of others.
 
 > One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.
+
+> Technology is anything that wasn't around when you were born.
