@@ -1422,3 +1422,5 @@
 > One needs something to believe in, something for which one can have whole-hearted enthusiasm. One needs to feel that one's life has meaning, that one is needed in this world.
 
 > Technology is anything that wasn't around when you were born.
+
+> He that is giddy thinks the world turns round.
