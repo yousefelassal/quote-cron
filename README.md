@@ -1424,3 +1424,5 @@
 > Technology is anything that wasn't around when you were born.
 
 > He that is giddy thinks the world turns round.
+
+> Start where you are. Use what you have. Do what you can.
