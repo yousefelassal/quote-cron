@@ -1426,3 +1426,5 @@
 > He that is giddy thinks the world turns round.
 
 > Start where you are. Use what you have. Do what you can.
+
+> Wisdom has its root in goodness, not goodness its root in wisdom.
