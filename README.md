@@ -1428,3 +1428,5 @@
 > Start where you are. Use what you have. Do what you can.
 
 > Wisdom has its root in goodness, not goodness its root in wisdom.
+
+> Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
