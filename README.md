@@ -1430,3 +1430,5 @@
 > Wisdom has its root in goodness, not goodness its root in wisdom.
 
 > Happiness is not in the mere possession of money; it lies in the joy of achievement, in the thrill of creative effort.
+
+> It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.
