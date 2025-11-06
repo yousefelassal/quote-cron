@@ -1434,3 +1434,5 @@
 > It is unwise to be too sure of one's own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.
 
 > Science is organized knowledge. Wisdom is organized life.
+
+> For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.
