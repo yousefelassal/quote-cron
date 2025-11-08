@@ -1438,3 +1438,5 @@
 > For it was not into my ear you whispered, but into my heart. It was not my lips you kissed, but my soul.
 
 > When deeds and words are in accord, the whole world is transformed.
+
+> It is impossible to love and to be wise.
