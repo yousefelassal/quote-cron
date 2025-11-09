@@ -1440,3 +1440,5 @@
 > When deeds and words are in accord, the whole world is transformed.
 
 > It is impossible to love and to be wise.
+
+> All that I am, or hope to be, I owe to my angel mother.
