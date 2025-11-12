@@ -1446,3 +1446,5 @@
 > The fact is, with every friendship you make, and every bond of trust you establish, you are shaping the image of America projected to the rest of the world. That is so important. So when you study abroad, you're actually helping to make America stronger.
 
 > Reason and free inquiry are the only effectual agents against error.
+
+> Let your hook always be cast; in the pool where you least expect it, there will be a fish.
