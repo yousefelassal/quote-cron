@@ -1452,3 +1452,5 @@
 > Gratitude is the fairest blossom which springs from the soul.
 
 > You can observe a lot just by watching.
+
+> To be wrong is nothing unless you continue to remember it.
