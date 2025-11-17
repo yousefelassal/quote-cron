@@ -1456,3 +1456,5 @@
 > To be wrong is nothing unless you continue to remember it.
 
 > There is only one success - to be able to spend your life in your own way.
+
+> Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort.
