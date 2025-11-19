@@ -1460,3 +1460,5 @@
 > Minds, like bodies, will often fall into a pimpled, ill-conditioned state from mere excess of comfort.
 
 > Dreams come true. Without that possibility, nature would not incite us to have them.
+
+> If you want a thing done well, do it yourself.
