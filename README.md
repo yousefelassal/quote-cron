@@ -1462,3 +1462,5 @@
 > Dreams come true. Without that possibility, nature would not incite us to have them.
 
 > If you want a thing done well, do it yourself.
+
+> No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.
