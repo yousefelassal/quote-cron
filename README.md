@@ -1464,3 +1464,5 @@
 > If you want a thing done well, do it yourself.
 
 > No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.
+
+> You can't shake hands with a clenched fist.
