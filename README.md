@@ -1466,3 +1466,5 @@
 > No matter how carefully you plan your goals they will never be more than pipe dreams unless you pursue them with gusto.
 
 > You can't shake hands with a clenched fist.
+
+> Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?
