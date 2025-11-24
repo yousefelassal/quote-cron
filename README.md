@@ -1470,3 +1470,5 @@
 > Even an animal, if you show genuine affection, gradually trust develops... If you always showing bad face and beating, how can you develop friendship?
 
 > When one tugs at a single thing in nature, he finds it attached to the rest of the world.
+
+> The free man is he who does not fear to go to the end of his thought.
