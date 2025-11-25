@@ -1472,3 +1472,5 @@
 > When one tugs at a single thing in nature, he finds it attached to the rest of the world.
 
 > The free man is he who does not fear to go to the end of his thought.
+
+> I never teach my pupils. I only attempt to provide the conditions in which they can learn.
