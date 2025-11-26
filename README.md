@@ -1474,3 +1474,5 @@
 > The free man is he who does not fear to go to the end of his thought.
 
 > I never teach my pupils. I only attempt to provide the conditions in which they can learn.
+
+> If you must tell me your opinions, tell me what you believe in. I have plenty of doubts of my own.
