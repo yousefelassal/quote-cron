@@ -1484,3 +1484,5 @@
 > Nature and books belong to the eyes that see them.
 
 > Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.
+
+> To accomplish great things, we must dream as well as act.
