@@ -1486,3 +1486,5 @@
 > Laughter is not at all a bad beginning for a friendship, and it is far the best ending for one.
 
 > To accomplish great things, we must dream as well as act.
+
+> I believe that we are fundamentally the same and have the same basic potential.
