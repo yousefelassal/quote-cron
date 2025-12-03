@@ -1488,3 +1488,5 @@
 > To accomplish great things, we must dream as well as act.
 
 > I believe that we are fundamentally the same and have the same basic potential.
+
+> Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
