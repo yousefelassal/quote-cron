@@ -1490,3 +1490,5 @@
 > I believe that we are fundamentally the same and have the same basic potential.
 
 > Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
+
+> I had three chairs in my house; one for solitude, two for friendship, three for society.
