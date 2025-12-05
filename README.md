@@ -1492,3 +1492,5 @@
 > Chance is always powerful. Let your hook be always cast; in the pool where you least expect it, there will be a fish.
 
 > I had three chairs in my house; one for solitude, two for friendship, three for society.
+
+> We should all be thankful for those people who rekindle the inner spirit.
