@@ -1494,3 +1494,5 @@
 > I had three chairs in my house; one for solitude, two for friendship, three for society.
 
 > We should all be thankful for those people who rekindle the inner spirit.
+
+> History is written by the victors.
