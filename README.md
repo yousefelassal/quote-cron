@@ -1496,3 +1496,5 @@
 > We should all be thankful for those people who rekindle the inner spirit.
 
 > History is written by the victors.
+
+> Criticism is something you can easily avoid by saying nothing, doing nothing, and being nothing.
