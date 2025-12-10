@@ -1502,3 +1502,5 @@
 > A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve.
 
 > Chaos and Order are not enemies, only opposites.
+
+> The trouble with most people is that they think with their hopes or fears or wishes rather than with their minds.
