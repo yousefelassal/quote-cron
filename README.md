@@ -1508,3 +1508,5 @@
 > No one has ever become poor by giving.
 
 > Sometimes the most important thing in a whole day is the rest we take between two deep breaths.
+
+> If you can't explain it simply, you don't understand it well enough.
