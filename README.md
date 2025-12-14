@@ -1510,3 +1510,5 @@
 > Sometimes the most important thing in a whole day is the rest we take between two deep breaths.
 
 > If you can't explain it simply, you don't understand it well enough.
+
+> The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.
