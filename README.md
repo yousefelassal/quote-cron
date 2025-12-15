@@ -1512,3 +1512,5 @@
 > If you can't explain it simply, you don't understand it well enough.
 
 > The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.
+
+> I am always doing that which I cannot do, in order that I may learn how to do it.
