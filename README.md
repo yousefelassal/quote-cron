@@ -1514,3 +1514,5 @@
 > The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.
 
 > I am always doing that which I cannot do, in order that I may learn how to do it.
+
+> I don't believe in failure. It's not failure if you enjoyed the process.
