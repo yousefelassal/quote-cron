@@ -1516,3 +1516,5 @@
 > I am always doing that which I cannot do, in order that I may learn how to do it.
 
 > I don't believe in failure. It's not failure if you enjoyed the process.
+
+> All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.
