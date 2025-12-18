@@ -1518,3 +1518,5 @@
 > I don't believe in failure. It's not failure if you enjoyed the process.
 
 > All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.
+
+> Bad times have a scientific value. These are occasions a good learner would not miss.
