@@ -1520,3 +1520,5 @@
 > All perceiving is also thinking, all reasoning is also intuition, all observation is also invention.
 
 > Bad times have a scientific value. These are occasions a good learner would not miss.
+
+> Every man is a volume if you know how to read him.
