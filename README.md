@@ -1524,3 +1524,5 @@
 > Every man is a volume if you know how to read him.
 
 > No yesterdays are ever wasted for those who give themselves to today.
+
+> It is only when the mind and character slumber that the dress can be seen.
