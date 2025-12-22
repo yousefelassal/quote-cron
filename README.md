@@ -1526,3 +1526,5 @@
 > No yesterdays are ever wasted for those who give themselves to today.
 
 > It is only when the mind and character slumber that the dress can be seen.
+
+> In wisdom gathered over time I have found that every experience is a form of exploration.
