@@ -1530,3 +1530,5 @@
 > In wisdom gathered over time I have found that every experience is a form of exploration.
 
 > Nothing happens unless first we dream.
+
+> There are no limitations to the mind except those we acknowledge.
