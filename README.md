@@ -1532,3 +1532,5 @@
 > Nothing happens unless first we dream.
 
 > There are no limitations to the mind except those we acknowledge.
+
+> The wisest men follow their own direction.
