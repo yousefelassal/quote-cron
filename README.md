@@ -1534,3 +1534,5 @@
 > There are no limitations to the mind except those we acknowledge.
 
 > The wisest men follow their own direction.
+
+> An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage.
