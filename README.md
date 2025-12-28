@@ -1538,3 +1538,5 @@
 > An organization's ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage.
 
 > Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
+
+> If you want things to be different, perhaps the answer is to become different yourself.
