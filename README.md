@@ -1540,3 +1540,5 @@
 > Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable.
 
 > If you want things to be different, perhaps the answer is to become different yourself.
+
+> To choose what is difficult all one's days, as if it were easy, that is faith.
