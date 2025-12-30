@@ -1542,3 +1542,5 @@
 > If you want things to be different, perhaps the answer is to become different yourself.
 
 > To choose what is difficult all one's days, as if it were easy, that is faith.
+
+> You cannot have what you do not want.
