@@ -1546,3 +1546,5 @@
 > You cannot have what you do not want.
 
 > There is no need for temples, no need for complicated philosophies. My brain and my heart are my temples; my philosophy is kindness.
+
+> A little knowledge that acts is worth infinitely more than much knowledge that is idle.
