@@ -1554,3 +1554,5 @@
 > To me, it doesn't matter how good you are. Sport is all about playing and competing. Whatever you do in cricket and in sport, enjoy it, be positive and try to win.
 
 > The least of things with a meaning is worth more in life than the greatest of things without it.
+
+> Patience and perseverance have a magical effect before which difficulties disappear and obstacles vanish.
