@@ -1562,3 +1562,5 @@
 > The beginning of wisdom is found in doubting; by doubting we come to the question, and by seeking we may come upon the truth.
 
 > With age comes wisdom and a high sex drive. And the wisdom to enjoy it.
+
+> Trying to define yourself is like trying to bite your own teeth.
