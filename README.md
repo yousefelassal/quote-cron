@@ -1564,3 +1564,5 @@
 > With age comes wisdom and a high sex drive. And the wisdom to enjoy it.
 
 > Trying to define yourself is like trying to bite your own teeth.
+
+> Try not to become a man of success, but rather try to become a man of value.
