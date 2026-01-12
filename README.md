@@ -1568,3 +1568,5 @@
 > Try not to become a man of success, but rather try to become a man of value.
 
 > Science gives us knowledge, but only philosophy can give us wisdom.
+
+> Always be smarter than the people who hire you.
