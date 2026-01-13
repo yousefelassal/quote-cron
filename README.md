@@ -1570,3 +1570,5 @@
 > Science gives us knowledge, but only philosophy can give us wisdom.
 
 > Always be smarter than the people who hire you.
+
+> Keep your eyes on the stars and your feet on the ground.
