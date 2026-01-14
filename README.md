@@ -1572,3 +1572,5 @@
 > Always be smarter than the people who hire you.
 
 > Keep your eyes on the stars and your feet on the ground.
+
+> We gain the strength of the temptation we resist.
