@@ -1576,3 +1576,5 @@
 > We gain the strength of the temptation we resist.
 
 > Of all possessions a friend is the most precious.
+
+> Love does not consist of gazing at each other, but in looking together in the same direction.
