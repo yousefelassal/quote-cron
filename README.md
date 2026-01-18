@@ -1580,3 +1580,5 @@
 > Love does not consist of gazing at each other, but in looking together in the same direction.
 
 > A wise person should be urgently moved on occasions that make for urgency.
+
+> The cause is hidden. The effect is visible to all.
