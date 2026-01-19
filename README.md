@@ -1582,3 +1582,5 @@
 > A wise person should be urgently moved on occasions that make for urgency.
 
 > The cause is hidden. The effect is visible to all.
+
+> So is cheerfulness, or a good temper, the more it is spent, the more remains.
