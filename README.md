@@ -1584,3 +1584,5 @@
 > The cause is hidden. The effect is visible to all.
 
 > So is cheerfulness, or a good temper, the more it is spent, the more remains.
+
+> When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.
