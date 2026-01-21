@@ -1586,3 +1586,5 @@
 > So is cheerfulness, or a good temper, the more it is spent, the more remains.
 
 > When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.
+
+> Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
