@@ -1588,3 +1588,5 @@
 > When you begin to touch your heart or let your heart be touched, you begin to discover that it's bottomless.
 
 > Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
+
+> I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.
