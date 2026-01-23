@@ -1590,3 +1590,5 @@
 > Knowledge is knowing that a tomato is a fruit. Wisdom is knowing not to put it in a fruit salad.
 
 > I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.
+
+> Sooner or later, those who win are those who think they can.
