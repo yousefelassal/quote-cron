@@ -1592,3 +1592,5 @@
 > I will not be concerned at other men's not knowing me; I will be concerned at my own want of ability.
 
 > Sooner or later, those who win are those who think they can.
+
+> Life is a succession of lessons, which must be lived to be understood.
