@@ -1594,3 +1594,5 @@
 > Sooner or later, those who win are those who think they can.
 
 > Life is a succession of lessons, which must be lived to be understood.
+
+> As you walk down the fairway of life you must smell the roses, for you only get to play one round.
