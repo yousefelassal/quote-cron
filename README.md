@@ -1600,3 +1600,5 @@
 > Before we acquire great power, we must acquire wisdom to use it well.
 
 > Doing nothing is better than being busy doing nothing.
+
+> Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.
