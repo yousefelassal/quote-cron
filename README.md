@@ -1604,3 +1604,5 @@
 > Don’t sacrifice your own welfare for that of another, no matter how great. Realizing your own true welfare, be intent on just that.
 
 > Three things cannot be long hidden: the sun, the moon, and the truth.
+
+> Just trust yourself, then you will know how to live.
