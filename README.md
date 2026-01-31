@@ -1606,3 +1606,5 @@
 > Three things cannot be long hidden: the sun, the moon, and the truth.
 
 > Just trust yourself, then you will know how to live.
+
+> We are made wise not by the recollection of our past, but by the responsibility for our future.
