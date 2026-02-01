@@ -1608,3 +1608,5 @@
 > Just trust yourself, then you will know how to live.
 
 > We are made wise not by the recollection of our past, but by the responsibility for our future.
+
+> Persuasion is often more effectual than force.
