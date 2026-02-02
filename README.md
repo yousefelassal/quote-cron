@@ -1610,3 +1610,5 @@
 > We are made wise not by the recollection of our past, but by the responsibility for our future.
 
 > Persuasion is often more effectual than force.
+
+> Knowledge is proud that it knows so much; wisdom is humble that it knows no more.
