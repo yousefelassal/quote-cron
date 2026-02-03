@@ -1612,3 +1612,5 @@
 > Persuasion is often more effectual than force.
 
 > Knowledge is proud that it knows so much; wisdom is humble that it knows no more.
+
+> If you spend too much time thinking about a thing, you'll never get it done.
