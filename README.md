@@ -1614,3 +1614,5 @@
 > Knowledge is proud that it knows so much; wisdom is humble that it knows no more.
 
 > If you spend too much time thinking about a thing, you'll never get it done.
+
+> Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.
