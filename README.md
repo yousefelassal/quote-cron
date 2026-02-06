@@ -1618,3 +1618,5 @@
 > Change will not come if we wait for some other person or some other time. We are the ones we've been waiting for. We are the change that we seek.
 
 > Argue for your limitations, and sure enough they're yours.
+
+> Friendship may, and often does, grow into love, but love never subsides into friendship.
