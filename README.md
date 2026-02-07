@@ -1620,3 +1620,5 @@
 > Argue for your limitations, and sure enough they're yours.
 
 > Friendship may, and often does, grow into love, but love never subsides into friendship.
+
+> It's not what you look at that matters, it's what you see.
