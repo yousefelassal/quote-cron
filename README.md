@@ -1622,3 +1622,5 @@
 > Friendship may, and often does, grow into love, but love never subsides into friendship.
 
 > It's not what you look at that matters, it's what you see.
+
+> He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today.
