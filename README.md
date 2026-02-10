@@ -1626,3 +1626,5 @@
 > He that never changes his opinions, never corrects his mistakes, and will never be wiser on the morrow than he is today.
 
 > He has no enemies, but is intensely disliked by his friends.
+
+> Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.
