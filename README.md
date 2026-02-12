@@ -1630,3 +1630,5 @@
 > Not every difficult and dangerous thing is suitable for training, but only that which is conducive to success in achieving the object of our effort.
 
 > There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen.
+
+> If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.
