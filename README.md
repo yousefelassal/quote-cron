@@ -1632,3 +1632,5 @@
 > There is no scarcity of opportunity to make a living at what you love; there's only scarcity of resolve to make it happen.
 
 > If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.
+
+> You cannot be lonely if you like the person you're alone with.
