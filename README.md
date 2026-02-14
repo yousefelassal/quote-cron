@@ -1634,3 +1634,5 @@
 > If you spend your whole life waiting for the storm, you'll never enjoy the sunshine.
 
 > You cannot be lonely if you like the person you're alone with.
+
+> Love is the master key that opens the gates of happiness.
