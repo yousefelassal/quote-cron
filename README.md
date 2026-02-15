@@ -1636,3 +1636,5 @@
 > You cannot be lonely if you like the person you're alone with.
 
 > Love is the master key that opens the gates of happiness.
+
+> It is not only for what we do that we are held responsible, but also for what we do not do.
