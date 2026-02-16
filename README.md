@@ -1638,3 +1638,5 @@
 > Love is the master key that opens the gates of happiness.
 
 > It is not only for what we do that we are held responsible, but also for what we do not do.
+
+> Impossibilities are merely things which we have not yet learned.
