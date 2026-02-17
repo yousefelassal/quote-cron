@@ -1640,3 +1640,5 @@
 > It is not only for what we do that we are held responsible, but also for what we do not do.
 
 > Impossibilities are merely things which we have not yet learned.
+
+> He has no enemies, but is intensely disliked by his friends.
