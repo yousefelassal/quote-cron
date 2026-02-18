@@ -1642,3 +1642,5 @@
 > Impossibilities are merely things which we have not yet learned.
 
 > He has no enemies, but is intensely disliked by his friends.
+
+> You can't stop the waves, but you can learn to surf.
