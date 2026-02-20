@@ -1646,3 +1646,5 @@
 > You can't stop the waves, but you can learn to surf.
 
 > Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.
+
+> If you have one true friend, you have more than your share.
