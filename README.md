@@ -1648,3 +1648,5 @@
 > Friendship is one of our most treasured relationships, but it isn't codified and celebrated; it's never going to give you a party.
 
 > If you have one true friend, you have more than your share.
+
+> Speak when you are angry, and you will make the best speech you will ever regret.
