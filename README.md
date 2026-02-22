@@ -1650,3 +1650,5 @@
 > If you have one true friend, you have more than your share.
 
 > Speak when you are angry, and you will make the best speech you will ever regret.
+
+> True knowledge exists in knowing that you know nothing.
