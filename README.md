@@ -1652,3 +1652,5 @@
 > Speak when you are angry, and you will make the best speech you will ever regret.
 
 > True knowledge exists in knowing that you know nothing.
+
+> Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has.
