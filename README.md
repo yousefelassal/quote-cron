@@ -1654,3 +1654,5 @@
 > True knowledge exists in knowing that you know nothing.
 
 > Never doubt that a small group of thoughtful, committed people can change the world. Indeed. It is the only thing that ever has.
+
+> Never explain - your friends do not need it and your enemies will not believe you anyway.
