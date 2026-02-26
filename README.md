@@ -1658,3 +1658,5 @@
 > Never explain - your friends do not need it and your enemies will not believe you anyway.
 
 > Technology is anything that wasn't around when you were born.
+
+> Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
