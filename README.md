@@ -1660,3 +1660,5 @@
 > Technology is anything that wasn't around when you were born.
 
 > Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
+
+> The years teach much which the days never know.
