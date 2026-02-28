@@ -1662,3 +1662,5 @@
 > Notice that the stiffest tree is most easily cracked, while the bamboo or willow survives by bending with the wind.
 
 > The years teach much which the days never know.
+
+> When you are content to be simply yourself and don't compare or compete, everybody will respect you.
