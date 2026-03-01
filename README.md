@@ -1664,3 +1664,5 @@
 > The years teach much which the days never know.
 
 > When you are content to be simply yourself and don't compare or compete, everybody will respect you.
+
+> Never apologize for showing feeling. When you do so, you apologize for truth.
