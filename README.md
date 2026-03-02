@@ -1666,3 +1666,5 @@
 > When you are content to be simply yourself and don't compare or compete, everybody will respect you.
 
 > Never apologize for showing feeling. When you do so, you apologize for truth.
+
+> How is it possible to find meaning in a finite world, given my waist and shirt size?
