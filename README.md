@@ -1670,3 +1670,5 @@
 > How is it possible to find meaning in a finite world, given my waist and shirt size?
 
 > You can do it if you believe you can!
+
+> In action a great heart is the chief qualification. In work, a great head.
