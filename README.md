@@ -1674,3 +1674,5 @@
 > In action a great heart is the chief qualification. In work, a great head.
 
 > A man may fulfil the object of his existence by asking a question he cannot answer and attempting a task he cannot achieve.
+
+> The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.
