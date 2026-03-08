@@ -1678,3 +1678,5 @@
 > The art of storytelling is reaching its end because the epic side of truth, wisdom, is dying out.
 
 > We can only learn to love by loving.
+
+> The invariable mark of wisdom is to see the miraculous in the common.
