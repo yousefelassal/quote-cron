@@ -1680,3 +1680,5 @@
 > We can only learn to love by loving.
 
 > The invariable mark of wisdom is to see the miraculous in the common.
+
+> I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.
