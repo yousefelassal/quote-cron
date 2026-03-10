@@ -1682,3 +1682,5 @@
 > The invariable mark of wisdom is to see the miraculous in the common.
 
 > I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.
+
+> Ask yourself the secret of your success. Listen to your answer and practice it.
