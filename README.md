@@ -1684,3 +1684,5 @@
 > I know not with what weapons World War III will be fought, but World War IV will be fought with sticks and stones.
 
 > Ask yourself the secret of your success. Listen to your answer and practice it.
+
+> Our kindness may be the most persuasive argument for that which we believe.
