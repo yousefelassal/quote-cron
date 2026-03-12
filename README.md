@@ -1686,3 +1686,5 @@
 > Ask yourself the secret of your success. Listen to your answer and practice it.
 
 > Our kindness may be the most persuasive argument for that which we believe.
+
+> He who talks more is sooner exhausted.
