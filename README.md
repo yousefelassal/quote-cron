@@ -1688,3 +1688,5 @@
 > Our kindness may be the most persuasive argument for that which we believe.
 
 > He who talks more is sooner exhausted.
+
+> All the great performers I have worked with are fueled by a personal dream.
