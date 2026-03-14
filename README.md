@@ -1690,3 +1690,5 @@
 > He who talks more is sooner exhausted.
 
 > All the great performers I have worked with are fueled by a personal dream.
+
+> Technology made large populations possible; large populations now make technology indispensable.
