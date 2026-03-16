@@ -1694,3 +1694,5 @@
 > Technology made large populations possible; large populations now make technology indispensable.
 
 > Your mind will answer most questions if you learn to relax and wait for the answer.
+
+> Love is the master key that opens the gates of happiness.
