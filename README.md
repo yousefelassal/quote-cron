@@ -1700,3 +1700,5 @@
 > Those who cannot learn from history are doomed to repeat it.
 
 > The right way is not always the popular and easy way. Standing for right when it is unpopular is a true test of moral character.
+
+> Ignorance never settles a question.
