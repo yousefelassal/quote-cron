@@ -1704,3 +1704,5 @@
 > Ignorance never settles a question.
 
 > The key to growth is the introduction of higher dimensions of consciousness into our awareness.
+
+> Some people go to priests; others to poetry; I to my friends.
