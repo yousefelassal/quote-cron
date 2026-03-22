@@ -1706,3 +1706,5 @@
 > The key to growth is the introduction of higher dimensions of consciousness into our awareness.
 
 > Some people go to priests; others to poetry; I to my friends.
+
+> It's important to know that words don't move mountains. Work, exacting work moves mountains.
