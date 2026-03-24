@@ -1710,3 +1710,5 @@
 > It's important to know that words don't move mountains. Work, exacting work moves mountains.
 
 > There are two kinds of failures: those who thought and never did, and those who did and never thought.
+
+> You can always count on Americans to do the right thing - after they've tried everything else.
