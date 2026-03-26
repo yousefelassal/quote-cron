@@ -1714,3 +1714,5 @@
 > You can always count on Americans to do the right thing - after they've tried everything else.
 
 > A man's growth is seen in the successive choirs of his friends
+
+> I always wanted to be somebody, but I should have been more specific.
