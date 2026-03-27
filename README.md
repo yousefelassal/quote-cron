@@ -1716,3 +1716,5 @@
 > A man's growth is seen in the successive choirs of his friends
 
 > I always wanted to be somebody, but I should have been more specific.
+
+> I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.
