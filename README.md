@@ -1720,3 +1720,5 @@
 > I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars.
 
 > There are only two ways to live your life. One is as though nothing is a miracle. The other is as though everything is a miracle.
+
+> Trouble is only opportunity in work clothes.
