@@ -1726,3 +1726,5 @@
 > Eighty percent of success is showing up.
 
 > I believe that every person is born with talent.
+
+> Remember that failure is an event, not a person.
