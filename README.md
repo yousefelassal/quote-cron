@@ -1732,3 +1732,5 @@
 > There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest.
 
 > What is necessary to change a person is to change his awareness of himself.
+
+> Conditions fall apart. Persist with diligence.
