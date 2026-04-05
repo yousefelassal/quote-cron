@@ -1734,3 +1734,5 @@
 > What is necessary to change a person is to change his awareness of himself.
 
 > Conditions fall apart. Persist with diligence.
+
+> If you want to go east, don't go west.
