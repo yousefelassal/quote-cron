@@ -1736,3 +1736,5 @@
 > Conditions fall apart. Persist with diligence.
 
 > If you want to go east, don't go west.
+
+> Friendship multiplies the good of life and divides the evil.
