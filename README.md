@@ -1742,3 +1742,5 @@
 > I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
 
 > The possibilities are numerous once we decide to act and not react.
+
+> Freedom is the right to live as we wish.
