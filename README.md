@@ -1750,3 +1750,5 @@
 > Yesterday is history. Tomorrow is a mystery. And today? Today is a gift. That is why we call it the present.
 
 > He who conquers others is strong; He who conquers himself is mighty.
+
+> The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.
