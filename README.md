@@ -1754,3 +1754,5 @@
 > The greatest obstacle to discovery is not ignorance - it is the illusion of knowledge.
 
 > This is the whole point of technology. It creates an appetite for immortality on the one hand. It threatens universal extinction on the other. Technology is lust removed from nature.
+
+> The self is not something ready-made, but something in continuous formation through choice of action.
