@@ -1758,3 +1758,5 @@
 > The self is not something ready-made, but something in continuous formation through choice of action.
 
 > You win the victory when you yield to friends.
+
+> Rejoicing in our joy, not suffering over our suffering, makes someone a friend.
