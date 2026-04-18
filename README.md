@@ -1760,3 +1760,5 @@
 > You win the victory when you yield to friends.
 
 > Rejoicing in our joy, not suffering over our suffering, makes someone a friend.
+
+> Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.
