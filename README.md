@@ -1764,3 +1764,5 @@
 > Adversity has the effect of eliciting talents, which in prosperous circumstances would have lain dormant.
 
 > Two persons cannot long be friends if they cannot forgive each other's little failings.
+
+> History will be kind to me for I intend to write it.
