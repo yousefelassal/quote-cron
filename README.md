@@ -1768,3 +1768,5 @@
 > History will be kind to me for I intend to write it.
 
 > If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.
+
+> To enjoy life, we must touch much of it lightly.
