@@ -1770,3 +1770,5 @@
 > If we had no winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.
 
 > To enjoy life, we must touch much of it lightly.
+
+> Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.
