@@ -1772,3 +1772,5 @@
 > To enjoy life, we must touch much of it lightly.
 
 > Twenty years from now you will be more disappointed by the things that you didn't do than by the ones you did do.
+
+> If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.
