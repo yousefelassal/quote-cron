@@ -1776,3 +1776,5 @@
 > If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception; it is a prevailing attitude.
 
 > To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
+
+> I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.
