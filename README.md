@@ -1780,3 +1780,5 @@
 > I know that inner wisdom is more precious than wealth. The more you spend it, the more you gain.
 
 > When in doubt, don't.
+
+> The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
