@@ -1782,3 +1782,5 @@
 > When in doubt, don't.
 
 > The first duty of a human being is to assume the right functional relationship to society - more briefly, to find your real job, and do it.
+
+> Happiness is found in doing, not merely possessing.
