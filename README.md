@@ -1786,3 +1786,5 @@
 > Happiness is found in doing, not merely possessing.
 
 > We can only be said to be alive in those moments when our hearts are conscious of our treasures.
+
+> Don't look back. Something might be gaining on you.
