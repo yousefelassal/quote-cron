@@ -1788,3 +1788,5 @@
 > We can only be said to be alive in those moments when our hearts are conscious of our treasures.
 
 > Don't look back. Something might be gaining on you.
+
+> I'm a great believer in luck and I find the harder I work, the more I have of it.
