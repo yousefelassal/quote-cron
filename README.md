@@ -1792,3 +1792,5 @@
 > I'm a great believer in luck and I find the harder I work, the more I have of it.
 
 > Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.
+
+> Learning without reflection is a waste, reflection without learning is dangerous.
