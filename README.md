@@ -1794,3 +1794,5 @@
 > Gratitude makes sense of our past, brings peace for today, and creates a vision for tomorrow.
 
 > Learning without reflection is a waste, reflection without learning is dangerous.
+
+> We know what we are but know not what we may be.
