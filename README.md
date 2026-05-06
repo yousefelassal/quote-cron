@@ -1796,3 +1796,5 @@
 > Learning without reflection is a waste, reflection without learning is dangerous.
 
 > We know what we are but know not what we may be.
+
+> I have often regretted my speech, never my silence.
