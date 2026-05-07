@@ -1798,3 +1798,5 @@
 > We know what we are but know not what we may be.
 
 > I have often regretted my speech, never my silence.
+
+> A garden is always a series of losses set against a few triumphs, like life itself.
