@@ -1800,3 +1800,5 @@
 > I have often regretted my speech, never my silence.
 
 > A garden is always a series of losses set against a few triumphs, like life itself.
+
+> Mistakes are always forgivable, if one has the courage to admit them.
