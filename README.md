@@ -1804,3 +1804,5 @@
 > Mistakes are always forgivable, if one has the courage to admit them.
 
 > People don't notice whether it's winter or summer when they're happy.
+
+> Everything comes to him who hustles while he waits.
