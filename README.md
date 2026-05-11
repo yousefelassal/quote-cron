@@ -1806,3 +1806,5 @@
 > People don't notice whether it's winter or summer when they're happy.
 
 > Everything comes to him who hustles while he waits.
+
+> All the great performers I have worked with are fueled by a personal dream.
