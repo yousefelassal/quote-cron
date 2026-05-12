@@ -1808,3 +1808,5 @@
 > Everything comes to him who hustles while he waits.
 
 > All the great performers I have worked with are fueled by a personal dream.
+
+> Computers are useless. They can only give you answers.
