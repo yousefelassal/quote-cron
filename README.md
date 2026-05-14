@@ -1812,3 +1812,5 @@
 > Computers are useless. They can only give you answers.
 
 > He that is giddy thinks the world turns round.
+
+> The time to repair the roof is when the sun is shining.
