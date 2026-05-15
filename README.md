@@ -1814,3 +1814,5 @@
 > He that is giddy thinks the world turns round.
 
 > The time to repair the roof is when the sun is shining.
+
+> I have learned that to be with those I like is enough.
