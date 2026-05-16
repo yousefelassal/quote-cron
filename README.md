@@ -1816,3 +1816,5 @@
 > The time to repair the roof is when the sun is shining.
 
 > I have learned that to be with those I like is enough.
+
+> The possibilities are numerous once we decide to act and not react.
