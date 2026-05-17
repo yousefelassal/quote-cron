@@ -1818,3 +1818,5 @@
 > I have learned that to be with those I like is enough.
 
 > The possibilities are numerous once we decide to act and not react.
+
+> A quarrel between friends, when made up, adds a new tie to friendship.
