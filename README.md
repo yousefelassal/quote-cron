@@ -1820,3 +1820,5 @@
 > The possibilities are numerous once we decide to act and not react.
 
 > A quarrel between friends, when made up, adds a new tie to friendship.
+
+> He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.
