@@ -1824,3 +1824,5 @@
 > He who is taught to live upon little owes more to his father's wisdom than he who has a great deal left him does to his father's care.
 
 > It is in your moments of decision that your destiny is shaped.
+
+> Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.
