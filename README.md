@@ -1828,3 +1828,5 @@
 > Leaders aren't born they are made. And they are made just like anything else, through hard work. And that's the price we'll have to pay to achieve that goal, or any goal.
 
 > We are what we repeatedly do. Excellence, then, is not an act, but a habit.
+
+> What is necessary to change a person is to change his awareness of himself.
