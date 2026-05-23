@@ -1830,3 +1830,5 @@
 > We are what we repeatedly do. Excellence, then, is not an act, but a habit.
 
 > What is necessary to change a person is to change his awareness of himself.
+
+> We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
