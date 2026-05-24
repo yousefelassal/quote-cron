@@ -1832,3 +1832,5 @@
 > What is necessary to change a person is to change his awareness of himself.
 
 > We should not judge people by their peak of excellence; but by the distance they have traveled from the point where they started.
+
+> This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.
