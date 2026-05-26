@@ -1836,3 +1836,5 @@
 > This world, after all our science and sciences, is still a miracle; wonderful, inscrutable, magical and more, to whosoever will think of it.
 
 > When times are bad is when the real entrepreneurs emerge.
+
+> When watching after yourself, you watch after others. When watching after others, you watch after yourself.
