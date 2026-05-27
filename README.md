@@ -1838,3 +1838,5 @@
 > When times are bad is when the real entrepreneurs emerge.
 
 > When watching after yourself, you watch after others. When watching after others, you watch after yourself.
+
+> Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.
