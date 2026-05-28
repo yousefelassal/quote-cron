@@ -1840,3 +1840,5 @@
 > When watching after yourself, you watch after others. When watching after others, you watch after yourself.
 
 > Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.
+
+> A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
