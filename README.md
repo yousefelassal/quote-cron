@@ -1842,3 +1842,5 @@
 > Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.
 
 > A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
+
+> Where all think alike, no one thinks very much.
