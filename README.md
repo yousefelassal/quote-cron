@@ -1844,3 +1844,5 @@
 > A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves.
 
 > Where all think alike, no one thinks very much.
+
+> The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.
