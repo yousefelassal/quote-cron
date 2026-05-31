@@ -1846,3 +1846,5 @@
 > Where all think alike, no one thinks very much.
 
 > The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.
+
+> We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
