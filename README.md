@@ -1848,3 +1848,5 @@
 > The purpose of learning is growth, and our minds, unlike our bodies, can continue growing as we continue to live.
 
 > We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
+
+> When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.
