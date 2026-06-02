@@ -1850,3 +1850,5 @@
 > We are either progressing or retrograding all the while. There is no such thing as remaining stationary in this life.
 
 > When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.
+
+> All human wisdom is summed up in two words; wait and hope.
