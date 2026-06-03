@@ -1852,3 +1852,5 @@
 > When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.
 
 > All human wisdom is summed up in two words; wait and hope.
+
+> To keep your secret is wisdom; but to expect others to keep it is folly.
