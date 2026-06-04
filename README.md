@@ -1854,3 +1854,5 @@
 > All human wisdom is summed up in two words; wait and hope.
 
 > To keep your secret is wisdom; but to expect others to keep it is folly.
+
+> Science gives us knowledge, but only philosophy can give us wisdom.
