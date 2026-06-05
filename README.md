@@ -1856,3 +1856,5 @@
 > To keep your secret is wisdom; but to expect others to keep it is folly.
 
 > Science gives us knowledge, but only philosophy can give us wisdom.
+
+> Problems are only opportunities with thorns on them.
