@@ -1858,3 +1858,5 @@
 > Science gives us knowledge, but only philosophy can give us wisdom.
 
 > Problems are only opportunities with thorns on them.
+
+> Go put your creed into the deed. Nor speak with double tongue.
