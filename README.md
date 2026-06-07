@@ -1860,3 +1860,5 @@
 > Problems are only opportunities with thorns on them.
 
 > Go put your creed into the deed. Nor speak with double tongue.
+
+> If we look at the world with a love of life, the world will reveal its beauty to us.
