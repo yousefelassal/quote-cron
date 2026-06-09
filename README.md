@@ -1864,3 +1864,5 @@
 > If we look at the world with a love of life, the world will reveal its beauty to us.
 
 > Nature is a mutable cloud which is always and never the same.
+
+> Pain and foolishness lead to great bliss and complete knowledge, for Eternal Wisdom created nothing under the sun in vain.
