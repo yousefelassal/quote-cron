@@ -1870,3 +1870,5 @@
 > It has become appallingly obvious that our technology has exceeded our humanity.
 
 > By three methods we may learn wisdom: First, by reflection, which is noblest; Second, by imitation, which is easiest; and third by experience, which is the bitterest.
+
+> Technology is nothing. What's important is that you have a faith in people, that they're basically good and smart, and if you give them tools, they'll do wonderful things with them.
