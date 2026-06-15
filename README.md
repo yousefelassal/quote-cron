@@ -1876,3 +1876,5 @@
 > You can always tell a real friend: when you've made a fool of yourself he doesn't feel you've done a permanent job.
 
 > If you don't design your own life plan, chances are you'll fall into someone else's plan. And guess what they have planned for you? Not much.
+
+> Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.
