@@ -1880,3 +1880,5 @@
 > Accept the things to which fate binds you and love the people with whom fate brings you together but do so with all your heart.
 
 > No alibi will save you from accepting the responsibility.
+
+> Patience is the companion of wisdom.
