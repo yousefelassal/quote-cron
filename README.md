@@ -1882,3 +1882,5 @@
 > No alibi will save you from accepting the responsibility.
 
 > Patience is the companion of wisdom.
+
+> Do not mind anything that anyone tells you about anyone else. Judge everyone and everything for yourself.
