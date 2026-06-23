@@ -1892,3 +1892,5 @@
 > One should train in deeds of merit—generosity, a balanced life, developing a loving mind—that yield long-lasting happiness.
 
 > What you get by achieving your goals is not as important as what you become by achieving your goals.
+
+> Act as if what you do makes a difference. It does.
