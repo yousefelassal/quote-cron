@@ -1898,3 +1898,5 @@
 > I love you the more in that I believe you had liked me for my own sake and for nothing else.
 
 > The most effective way to do it, is to do it.
+
+> One loyal friend is worth ten thousand relatives.
