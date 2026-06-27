@@ -1900,3 +1900,5 @@
 > The most effective way to do it, is to do it.
 
 > One loyal friend is worth ten thousand relatives.
+
+> The extreme limit of wisdom, that's what the public calls madness.
