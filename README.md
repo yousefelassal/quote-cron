@@ -1902,3 +1902,5 @@
 > One loyal friend is worth ten thousand relatives.
 
 > The extreme limit of wisdom, that's what the public calls madness.
+
+> A garden is always a series of losses set against a few triumphs, like life itself.
