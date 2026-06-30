@@ -1906,3 +1906,5 @@
 > A garden is always a series of losses set against a few triumphs, like life itself.
 
 > No man was ever wise by chance.
+
+> Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.
