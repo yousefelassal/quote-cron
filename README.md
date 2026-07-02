@@ -1910,3 +1910,5 @@
 > Each friend represents a world in us, a world not born until they arrive, and it is only by this meeting that a new world is born.
 
 > If one does not know to which port is sailing, no wind is favorable.
+
+> The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.
