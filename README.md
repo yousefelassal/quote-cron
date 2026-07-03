@@ -1912,3 +1912,5 @@
 > If one does not know to which port is sailing, no wind is favorable.
 
 > The key to transforming our hearts and minds is to have an understanding of how our thoughts and emotions work.
+
+> There is nothing on this earth more to be prized than true friendship.
