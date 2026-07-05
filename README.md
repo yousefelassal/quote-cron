@@ -1916,3 +1916,5 @@
 > There is nothing on this earth more to be prized than true friendship.
 
 > It's supposed to be automatic, but actually you have to push this button.
+
+> Small opportunities are often the beginning of great enterprises.
