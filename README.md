@@ -1918,3 +1918,5 @@
 > It's supposed to be automatic, but actually you have to push this button.
 
 > Small opportunities are often the beginning of great enterprises.
+
+> It has become appallingly obvious that our technology has exceeded our humanity.
