@@ -1922,3 +1922,5 @@
 > It has become appallingly obvious that our technology has exceeded our humanity.
 
 > We all live with the objective of being happy; our lives are all different and yet the same.
+
+> Where there is charity and wisdom, there is neither fear nor ignorance.
