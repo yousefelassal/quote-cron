@@ -1926,3 +1926,5 @@
 > Where there is charity and wisdom, there is neither fear nor ignorance.
 
 > Wisdom is a kind of knowledge. It is knowledge of the nature, career, and consequences of human values.
+
+> Impossibilities are merely things which we have not yet learned.
