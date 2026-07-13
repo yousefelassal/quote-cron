@@ -1932,3 +1932,5 @@
 > Our doubts are traitors and make us lose the good we often might win, by fearing to attempt.
 
 > Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.
+
+> What the caterpillar calls the end of the world, the master calls a butterfly.
