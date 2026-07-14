@@ -1934,3 +1934,5 @@
 > Knowledge has three degrees: opinion, science, illumination. The means or instrument of the first is sense; of the second, dialectic; of the third, intuition.
 
 > What the caterpillar calls the end of the world, the master calls a butterfly.
+
+> I hear and I forget. I see and I remember. I do and I understand.
