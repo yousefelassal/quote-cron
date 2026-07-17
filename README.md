@@ -1940,3 +1940,5 @@
 > We're born alone, we live alone, we die alone. Only through our love and friendship can we create the illusion for the moment that we're not alone.
 
 > Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
+
+> Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.
