@@ -1942,3 +1942,5 @@
 > Discovery consists of seeing what everybody has seen and thinking what nobody else has thought.
 
 > Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.
+
+> Impossibilities are merely things which we have not yet learned.
