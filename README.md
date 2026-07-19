@@ -1944,3 +1944,5 @@
 > Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.
 
 > Impossibilities are merely things which we have not yet learned.
+
+> Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.
