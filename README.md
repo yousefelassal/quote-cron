@@ -1946,3 +1946,5 @@
 > Impossibilities are merely things which we have not yet learned.
 
 > Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.
+
+> Nothing in life is so exhilarating as to be shot at without result.
