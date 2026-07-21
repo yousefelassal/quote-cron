@@ -1948,3 +1948,5 @@
 > Sweet is the memory of distant friends! Like the mellow rays of the departing sun, it falls tenderly, yet sadly, on the heart.
 
 > Nothing in life is so exhilarating as to be shot at without result.
+
+> The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else?
