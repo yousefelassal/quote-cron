@@ -1950,3 +1950,5 @@
 > Nothing in life is so exhilarating as to be shot at without result.
 
 > The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else?
+
+> Good timber does not grow with ease; the stronger the wind, the stronger the trees.
