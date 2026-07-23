@@ -1952,3 +1952,5 @@
 > The thing that is disliked by me is also disliked by others. Since I dislike this thing, how can I inflict it on someone else?
 
 > Good timber does not grow with ease; the stronger the wind, the stronger the trees.
+
+> When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.
