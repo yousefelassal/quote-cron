@@ -1954,3 +1954,5 @@
 > Good timber does not grow with ease; the stronger the wind, the stronger the trees.
 
 > When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.
+
+> I cannot make my days longer, so I strive to make them better.
