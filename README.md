@@ -1956,3 +1956,5 @@
 > When we quit thinking primarily about ourselves and our own self-preservation, we undergo a truly heroic transformation of consciousness.
 
 > I cannot make my days longer, so I strive to make them better.
+
+> Vanity can easily overtake wisdom. It usually overtakes common sense.
