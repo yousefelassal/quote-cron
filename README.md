@@ -1958,3 +1958,5 @@
 > I cannot make my days longer, so I strive to make them better.
 
 > Vanity can easily overtake wisdom. It usually overtakes common sense.
+
+> Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
