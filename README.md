@@ -1960,3 +1960,5 @@
 > Vanity can easily overtake wisdom. It usually overtakes common sense.
 
 > Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
+
+> To change one's life, start immediately, do it flamboyantly, no exceptions.
