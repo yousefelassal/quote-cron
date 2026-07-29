@@ -1964,3 +1964,5 @@
 > To change one's life, start immediately, do it flamboyantly, no exceptions.
 
 > Sometimes the most important thing in a whole day is the rest we take between two deep breaths.
+
+> True friends stab you in the front.
