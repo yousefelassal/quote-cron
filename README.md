@@ -1966,3 +1966,5 @@
 > Sometimes the most important thing in a whole day is the rest we take between two deep breaths.
 
 > True friends stab you in the front.
+
+> The superior man blames himself. The inferior man blames others.
