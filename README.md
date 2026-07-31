@@ -1968,3 +1968,5 @@
 > True friends stab you in the front.
 
 > The superior man blames himself. The inferior man blames others.
+
+> When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.
