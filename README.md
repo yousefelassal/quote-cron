@@ -1970,3 +1970,5 @@
 > The superior man blames himself. The inferior man blames others.
 
 > When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.
+
+> Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak.
