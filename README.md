@@ -1972,3 +1972,5 @@
 > When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.
 
 > Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak.
+
+> Believe deep down in your heart that you're destined to do great things.
