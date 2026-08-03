@@ -1974,3 +1974,5 @@
 > Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak.
 
 > Believe deep down in your heart that you're destined to do great things.
+
+> Communications tools don't get socially interesting until they get technologically boring.
