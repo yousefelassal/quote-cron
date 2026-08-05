@@ -1978,3 +1978,5 @@
 > Communications tools don't get socially interesting until they get technologically boring.
 
 > Wrinkles should merely indicate where smiles have been.
+
+> When you doubt your power, you give power to your doubt.
