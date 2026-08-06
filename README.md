@@ -1980,3 +1980,5 @@
 > Wrinkles should merely indicate where smiles have been.
 
 > When you doubt your power, you give power to your doubt.
+
+> We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.
