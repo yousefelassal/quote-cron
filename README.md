@@ -1984,3 +1984,5 @@
 > We all grow up. Hopefully, we get wiser. Age brings wisdom, and fatherhood changes one's life completely.
 
 > Fortune favors the brave.
+
+> Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.
