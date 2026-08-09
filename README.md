@@ -1986,3 +1986,5 @@
 > Fortune favors the brave.
 
 > Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.
+
+> Motivation is the art of getting people to do what you want them to do because they want to do it.
