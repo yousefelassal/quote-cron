@@ -1988,3 +1988,5 @@
 > Faith, as well intentioned as it may be, must be built on facts, not fiction--faith in fiction is a damnable false hope.
 
 > Motivation is the art of getting people to do what you want them to do because they want to do it.
+
+> There are three methods to gaining wisdom. The first is reflection, which is the highest. The second is limitation, which is the easiest. The third is experience, which is the bitterest.
