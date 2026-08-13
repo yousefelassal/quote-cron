@@ -1994,3 +1994,5 @@
 > Ignorant men don't know what good they hold in their hands until they've flung it away.
 
 > Fortune favors the brave.
+
+> The only real mistake is the one from which we learn nothing.
