@@ -1996,3 +1996,5 @@
 > Fortune favors the brave.
 
 > The only real mistake is the one from which we learn nothing.
+
+> Time is the most valuable thing a man can spend.
