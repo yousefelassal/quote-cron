@@ -1998,3 +1998,5 @@
 > The only real mistake is the one from which we learn nothing.
 
 > Time is the most valuable thing a man can spend.
+
+> The thoughts we choose to think are the tools we use to paint the canvas of our lives.
