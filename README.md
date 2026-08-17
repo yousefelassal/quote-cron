@@ -2002,3 +2002,5 @@
 > The thoughts we choose to think are the tools we use to paint the canvas of our lives.
 
 > Almost everything comes from nothing.
+
+> Do something wonderful, people may imitate it.
