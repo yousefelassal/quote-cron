@@ -2010,3 +2010,5 @@
 > Problems are not stop signs, they are guidelines.
 
 > The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition.
+
+> There is only one success - to be able to spend your life in your own way.
