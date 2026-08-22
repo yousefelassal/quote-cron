@@ -2012,3 +2012,5 @@
 > The industrial landscape is already littered with remains of once successful companies that could not adapt their strategic vision to altered conditions of competition.
 
 > There is only one success - to be able to spend your life in your own way.
+
+> Sometimes it is better to lose and do the right thing than to win and do the wrong thing.
